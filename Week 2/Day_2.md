@@ -1,35 +1,37 @@
-# Week 1 — Day 2
+# Week 2 — Day 2
 
-## Potential Defined
+## Everything Comes From God
 
-> *Now it is God who has made us for this very purpose and has given us the Spirit as a deposit, guaranteeing what is to come*  
-> — **2 Corinthians 5:5 NIV**
+> *Through Him all things were made; without Him nothing was made that has been made*  
+> — **John 1:3**
 
-It is a tragedy to know that with over five billion people on this planet today, only a minute percentage will experience a significant fraction of their true potential. 
-Perhaps you are a candidate for contributing to the wealth of the cemetery. 
-Your potential was not given for you to deposit in the grave. 
-You must understand the tremendous potential you possess and commit yourself to maximizing it in your
-short lifetime. 
-What is potential, anyway?
+Everything in life was created with potential and possesses the potential principle. 
+Creation abounds with potential because the Creator Himself is the potential principle.
 
----
-
-> *Potential is dormant ability; reserved power; untapped strength; unused success; hidden talents; capped capability.*
-> *All you can be but have not yet become; all you can do but have not yet done; how far you can reach but have not yet reached; what you can accomplish but have not yet accomplished.*
-> *Potential is unexposed ability and latent power.*
+When we describe God, we often say He is omnipotent. _Omnipotent_ means that _God is always potent_. 
+Made up of two words: _omni_, meaning “always,” and _potent_, meaning “full of power,” omnipotent
+means that God is potentially everything. 
+He has within Him the potential for all that is, was, or ever will be. He is omni-potent or
+omnipotent.
 
 ---
 
-Potential is therefore not what you have done, but what you are yet able to do. 
-In other words, what you have done is no longer your potential. 
-What you have successfully accomplished is no longer potential. 
-It is said that unless you do something beyond what you have done, you will never grow or experience your full potential.
-Potential demands that you never settle for what you have accomplished. 
-One of the great enemies of your potential is success. 
-In order to realize your full potential, you must never be satisfied with your last accomplishment. 
-It is also important that you never let what you _cannot_ do interfere with what you _can_ do. 
-The greatest tragedy in life is not death, but a life that never realized its full potential. 
-You must decide today not to rob the world of the rich, valuable, potent,
-untapped resources locked away within you. 
+_Everything that was, and everything that is, was in God_. That’s a very important concept. 
+Everything that was and is, was in God. We have to start with God. 
+Before God made anything, before He created things, there was only God. So before anything was, God is.
+God is the root, or source, of all life.
 
->Potential never has a retirement plan.
+_Before anything was, God is._
+
+---
+
+Before there was time, time was...but it was in God. Before God created a galaxy or the Milky Way, they existed in God. Before there was a universe or a planetary system with the third planet called earth revolving around the sun, before any of that was, they were in God. 
+
+I wonder what it must have been like when God was just by Himself. Let’s try to imagine that for a bit. Here’s God. He steps out on nothing to view nothing, for there was nothing except God. And so God is standing on top of nothing, looking at nothing because everything was in Him.
+
+---
+
+The Bible tells us: _“In the beginning, God…”_ That means before there was a beginning, there was God. Therefore, God began the beginning and verse 0 of the first chapter of Genesis might possibly
+read: In God was the beginning. Everything that is was in God. Everything that has ever been made was made by God.
+
+When we connect Genesis 1:0, in God was the beginning and John 1:1, in the beginning was the Word, and the Word was with God. He was with God in the beginning, we see that the Word was with God _in_ the beginning, not _at_ the beginning
