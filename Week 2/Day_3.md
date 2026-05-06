@@ -1,39 +1,24 @@
-# Week 1 — Day 3
+# Week 2 — Day 3
 
-## The Potential Principle
+## In God Was the Beginning
 
-> *The field is the world, and the good seed stands for the sons of the kingdom*  
-> — **Matthew 13:38**
+> *In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. Through Him all things were made; without Him nothing was made that has been made. In Him was life…*  
+> — **John 1:1-4**
 
-To understand your potential, let us look at one of the most powerful elements in nature…the seed. 
-If I held a seed in my hand and asked you, “What do I have in my hand?” what would you say?
-Perhaps you would answer what seems to be the obvious…a seed.
-However, if you understand the nature of a seed, your answer would be _fact_ but not _truth_.
+Before there was a beginning, there was God. Everything that is was in God.
+The Gospel of John tells us that all things were made by the Word.
 
----
-
-The truth is I hold a forest in my hand. Why? Because in every seed there is a tree, and in every tree there is fruit or flowers with seeds in them. 
-And these seeds also have trees that have fruit that have seeds…that have trees that have fruit that have seeds, etc. 
-In essence, what you see is not all there is. _That is potential. Not what is, but what could be_.
+Nothing that was created was made without the Word. In _the Word_ was life. _Life_ came out of God. Therefore, before you knew life, life was. _All_ things were made by God. Everything you see, hear, smell, taste, and touch was in God before they came to be. Even what you discern first existed in God.
 
 ---
 
-God created everything with potential, including you. 
-He placed the seed of each thing within itself (see Genesis 1:12), and planted within each person or thing He created the ability to be much more than it is at any one moment. 
-Thus, everything in life has potential.
-Nothing in life is instant. People think miracles are instant, but they really are not. 
-They are just a process that has been sped up.
-Nothing God created is instant, because God does not operate in the instant. He is a God of the potential principle. Everything begins as potential.
+Now let me be a little ridiculous to prove my point. God had roaches and mosquitoes and rats in Him. He had suns and clouds and planets in Him. The cows to make shoe leather…the oil to run our cars…the ore from the mountains to make steel—all these things were in God. Everything on this earth is God’s property. If God would ever call in His property, we would be in big trouble. All things were in God and thus belong to Him. God, in the beginning when there was nothing, contained everything that man _has seen_. He also contained everything man _will ever see_.
 
 ---
 
-He did not create a ready-made human race—the earth was not given an instant population. 
-God made one person—not a million people. He started with one seed. Then from that one He created another. 
-Then He said to those seeds, _“Bless you (that means, ‘You have My permission’). Be fruitful and multiply and replenish the earth.”_
+Thus if you had talked to God on the highway of nothingness, you would have been talking to millions of cows and horses and mountains and trees and limousines and hotels and beaches. They all were in God. They were in Him, but no one saw them. That’s why we call God omnipotent. He’s always full of the potential to bring forth
+what you see. God is pregnant with the universe. In essence, if you met God on the highway of nothing, by the corner of nowhere, before there was anything, and you shook His hand, you would be shaking hands with everything, but would not know it. You would be with potential.
 
 ---
 
-In Adam, God gave the earth a seed with the potential of one…one hundred…one thousand…one million…. 
-The five billion people on the earth today were in that one man’s loins. 
-God knew that in Adam and Eve there were enough people to fill the earth.
-That’s the way God works. He knows the potential principle because He introduced it. It is Him.
+> — *God is pregnant with the universe.*
