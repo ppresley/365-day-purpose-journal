@@ -1,43 +1,31 @@
-# Week 1 — Day 4
+# Week 2 — Day 4
 
-## Don’t Settle for What You Have
+## The Invisible Became Visible
 
-> *So we fix our eyes not on what is seen, but on what is unseen. For what is seen is temporary, but what is unseen is eternal*  
-> — **2 Corinthians 4:18 NIV**
+> *By faith we understand that the universe was formed at God’s command, so that what is seen was not made out of what was visible*  
+> — **Hebrews 11:3**
 
-Potential is always present, waiting to be exposed. 
-It demands that you never settle for what you have accomplished. 
-One of the greatest enemies of your potential is success. 
-God wants you to maximize the potential He has given to you. 
-You are not yet what you are supposed to be, though you may be pleased with what you now are.
-Don’t accept your present state in life as final, because it is just a state. 
-Don’t be satisfied with your last accomplishment, because there are many accomplishments yet to be perfected. 
-Since you are full of potential, you should not be the same person next year that you are this year.
+In the beginning, God was pregnant with the universe and all things were made by Him. But how did these things come out of Him? How was the universe formed? All things were formed at God’s command. He spat them out—poof! From the invisible came the visible. Things that are seen came from things that were unseen.
+God always had everything in Him, but we couldn’t see it. All we now see was once in an invisible state. Everything that man has ever seen first existed in an invisible state. (Please note that invisible
+does not mean nonexistent.)
 
 ---
 
-Never accept success as a lifestyle. It is but a phase. 
-Never accept an accomplishment as the end. It is but a mark in the process. 
-Because you are God’s offspring, there are many selves within you that lie dormant, untapped and unused. 
-Your primary problem is that you do not think like God does.
-There are many selves within you that lie dormant, untapped and unused.
+All the buildings we see and the businesses we frequent, people making money and investing money...all that stuff began as ideas. We couldn’t see them because they were in somebody’s mind.
+The stores where we shop, also everything on the shelves and racks in those stores, began as ideas in someone’s mind. They didn’t exist before, yet they did. Although they weren’t present in their current
+form, they existed as lumber and concrete and nails, cotton and wool and flax, steel and pulleys and motors.
 
 ---
 
-God is always looking for what is not yet visible. 
-He expects to find inside each person and thing He created more than is evident on
-the outside. 
-On the other hand, man is often satisfied with what he has or at least if not satisfied, he thinks there is nothing better. Thus he settles for what he has.
+Someone had an idea. Through work they put their idea into things that are visible. Today they take your money. Everything starts in the invisible state. Everything we now see used to be unseen.
+In the beginning there was only God. At creation the entire unseen universe became visible. Everything that has been created was made by the word of God. Although it already existed, God spoke so that what was invisible could become visible. You would never have known it existed, except God spat it out in faith.
 
 ---
 
-Therein lies the tragedy of life. 
-The minute we begin to settle down and be satisfied with what we have, we lose the possibility of
-revealing what is really inside us. 
-Too often we die without exploring the gifts, abilities, and successes that lay hidden within us. 
-Our thoughts, ideas, and possibilities are not used. 
-We fail to realize the vast potential that is stored within us. 
-We are like batteries in a radio that is never played. _Our potential is wasted_.
+By faith God spat out what was in Him. Everything in Him started to come forth. What we now see was birthed by God from what was invisibly within Him. Whatever you see came from the unseen. Nothing exists that was not at some time in God. Thus, _faith is not the evidence of things that do not exist. It is the evidence of things that are not yet seen._ Everything we see has always been. It became visible when God spoke it into being. God is the source of life
 
+---
+
+> — *What we now see was birthed by God from what was invisibly within Him.*
 
 
