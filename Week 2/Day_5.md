@@ -1,30 +1,26 @@
-# Week 1 — Day 5
+# Week 2 — Day 5
 
-## Don’t Die With My Things
+## SPOKE Was Hard Work
 
-> *Do not neglect your gift, which was given you through a prophetic message when the body of elders laid their hands on you*  
-> — **1 Timothy 4:14**
+> *My own hand laid the foundations of the earth, and My right hand spread out the heavens; when I summon them, they all stand up together*  
+> — **Isaiah 48:13**
 
-Suppose Shakespeare had died before he wrote his poems and plays. The potential of _Macbeth_ would have been buried. Suppose Michelangelo had died before he painted the Sistine Chapel or DaVinci the Mona Lisa, the beauty of their paintings would have been lost. Suppose Mozart had died with all that music in his bosom.
-
----
-
-Suppose Moses had died before he saw the burning bush…Paul before he met Jesus on the Damascus Road…Abraham before Isaac was born. How different the pages of Scripture and history would be.
-Suppose Martin Luther had died without writing the thesis…Charles Wesley without penning the hymns…John Wycliffe without translating the Bible into English. How different the history of the Church
-might have been.
+Everything we see has always been. It became visible when God spoke it into being. God is the source of life.
+What happened when God spoke at creation? How did He get the invisible to become visible? First let me broaden your idea of the word spoke.
 
 ---
 
-Can you imagine how many great works of art, music, and literature are buried in the graveyard near your house? Can you imagine how many solutions to the problems we face today are buried with
-someone you knew? People die without getting out their full potential. They fail to use all that was stored in them for the benefit of the world.
+_Spoke_ was a process. What God spoke into visibility began as an idea in His mind. God first conceived in His mind what He wanted to create. He didn’t just say, “I want this.” The prophet Isaiah tells us that God created the earth by first planning its foundations (Isaiah 48:13). After the plans were in His mind, God spoke them into existence. When God was ready to speak, it was just a matter of taking
+what was in the plan and putting it on the site.
 
 ---
 
-I wonder what would have happened if your father had died before you were conceived or your mother before you were born. What would the world have lost if you had not been born? What will the world lack because you fail to live out your potential? Will you carry songs, books, inventions, cures, or discoveries to your grave? What would the world have lost if you had not been born?
+God laid the groundwork for the earth and spread out the heavens. He created the sun to shine during the day and the moon and stars at night. He gave every star a name. He ordered clouds to fill the sky and breezes to blow. He made the waves to roar in the sea. He sent rain to water the earth and grass to cover the hillside.
+Thunder and lightning were created by His command; hail and sleet were formed by His word. A wool-like blanket of snow He produced for winter; frost and dew He designed.
 
 ---
 
-Our teens are committing suicide. I wonder who they were supposed to be and what they were supposed to do that we will never know. Have we lost some great leaders? Was your grandchild’s professor or another Martin Luther King among them?
+> — *After the plans were in His mind, God spoke them into existence.*
 
 
 
