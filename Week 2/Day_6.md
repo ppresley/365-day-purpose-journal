@@ -1,26 +1,29 @@
-# Week 1 — Day 6
+# Week 2 — Day 6
 
-## Complete Your Race
+## God’s Imagination at Work
 
-> *…and to know this love that surpasses knowledge that you may be filled to the measure of all the fullness of God*  
-> — **Ephesians 3:19**
+> *By the seventh day God had finished the work He had been doing; so on the seventh day He rested from all His work. And God blessed the seventh day and made it holy, because on it He rested from all the work of creating that He had done*  
+> — **Genesis 2:2-3**
 
-As the time for His crucifixion drew near, Jesus spoke of the potential principle in terms of His life. 
-He compared Himself to a kernel of wheat that falls into the ground and dies (see John 12:23-24).
-A kernel of wheat, when planted, yields many more kernels. Within Jesus was the potential to bring millions of people to God. 
-Thank God Herod didn’t succeed when he tried to wipe out Jesus. If he had, Jesus would have died before He could offer Himself as our atonement. His great purpose in life would have been wasted. The seed of
-His life was much more than His disciples could see. That one seed had the potential to give life to many.
+God was full of imagination. He was pregnant with many thoughts. His thoughts became ideas, and the ideas became images.Everything that is came out of God as He _spoke_ those images. The unseen became seen, the invisible became visible.
+
+God’s speaking was much like the contractions of a woman in labor. With effort He pushed out each detailed creation. Then God began organizing the things that appeared. He was busy as He set them up, organizing and organizing and reorganizing. Finally God said, “This is good.”
 
 ---
 
-There was a time early in his ministry when the apostle Paul said, “I’d like to leave.” Though he preferred to die and be with Christ, he knew his purpose in life had not been completely fulfilled.
-There was yet much fruitful labor for him to do. It was necessary for the Church that he continue to live. Thank God Paul did not die. The benefit of his wisdom would have been lost to the early Church and
-to us. His potential to write Colossians and Ephesians may have been forfeited.
+God didn’t create the world by just _thinking_ the whole thing into being. He _worked_ it into being. After creating a plan in His mind, God spoke to make visible the invisible. (Speaking was one of the ways He worked.) All that was made came from God. Through work He created the world.
+
+For six days God created the heavens and the earth. On the seventh day He rested.
 
 ---
 
-Later, near his death, Paul wrote: “Timothy, I’ve run the race. I’ve finished the course. I’ve kept the faith. I’ve done the work. My award awaits me. I’m ready to die. Keep working after I’m gone”
-(see 2 Timothy 4:5-7). Everything in life has the potential to fulfill its purpose. _People who die without achieving their full potential rob their generation of their latent ability. Many have robbed me, they’ve also robbed you. To die with ability is irresponsible._
+_Spoke_ must be a fairly serious thing. If God, who is almighty and all powerful, had to rest after creation, _spoke_ it must have been very hard work.
+
+When creation was completed, God rested. God was the first one to _sabbat._ He intended the Sabbath to be a blessing. He knows that life produces work, and work creates the need to rest.
+
+---
+
+> — *All that was made came from God. Through work He created the world.*
 
 
 
