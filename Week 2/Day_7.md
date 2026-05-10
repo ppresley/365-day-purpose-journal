@@ -1,29 +1,26 @@
-# Week 1 — Day 7
+# Week 2 — Day 7
 
-## What’s in Your Package?
+## The Work of Creation Is Not Yet Complete
 
-> *We have different gifts, according to the grace given us*  
-> — **Romans 12:6**
+> *What has been will be again, what has been done will be done again; there is nothing new under the sun*  
+> — **Ecclesiastes 1:9**
 
-Perhaps you are wasting your life doing nothing with all you have. God packaged some things in you for the good of the world, use them. We will never know the wealth God planted in you until you bring it up. 
-There’s always something in you that we haven’t yet seen because that’s the way God thinks. Release your ability before you die. Use the power and strength within you for the good of yourself and others. 
-I believe there are books, songs, art works, businesses, poems, inventions, and investments in you that God intended for my children to enjoy. Don’t give up until you have lived out the full extent of your potential, because _you have no right to die with my things_. Don’t rob the next generation of the wealth, treasure, and
-tremendous gifts buried deep within you.
+The work of God is not complete. He has not delivered all His babies. He will keep on delivering as long as you deliver, because you are the continuation of His deliveries. God can still create. When you ask for something in prayer, God doesn’t have to shift things around because He is going broke. If it doesn’t exist in a visible
+form, God will speak it. He’ll make whatever is necessary. He continues to be pregnant with many things.
 
 ---
 
-If you want to succeed, strike out on new paths. Don’t travel the worn paths of accepted success.
+Because all things are in God, you can ask God for anything. An idea is around in God a long time before it comes out. Nothing we think or do is new (see Ecclesiastes 1:9). Everything that has been done will be done again, what we think is new has already been here for a long time.
 
-No man can climb beyond the limitations of his own belief.
+---
 
-Every day sends to the grave obscure men and women whom fear prevented from realizing their true and full potential.
+There’s a guy in China right now who is thinking about the idea you thought was yours. When the idea came out of God, many people got it. Because everything comes out of God, you all received the idea from the same Source. Until that idea is transformed by action, God will continue to leak that idea into men and women. Why?
+Because God is a God of potential. Although He is the source of all things, He shares His omnipotent powers with His creation. We, like God, are pregnant with many things. We are full of imagination, having the potential power to be more than we visibly are. There are dreams, visions, plans and ideas in us that need to be released. God
+wants us to tap His power and use it, because God made us with potential.
 
-Failure is not the absence of success. Failure is the neglect of trying.
+---
 
-What you see is not all there is. There is something in everything.
-What you have done is no longer your potential.
-Potential is what you can do but have not yet done.
-
+> — *Nothing we think or do is new.*
 
 
 
