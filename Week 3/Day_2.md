@@ -1,37 +1,26 @@
-# Week 2 — Day 2
+# Week 3 — Day 2
 
-## Everything Comes From God
+## You Are Not Junk
 
-> *Through Him all things were made; without Him nothing was made that has been made*  
-> — **John 1:3**
+> *I praise You because I am fearfully and wonderfully made; Your works are wonderful, I know that full well*  
+> — **Psalm 139:14**
 
-Everything in life was created with potential and possesses the potential principle. 
-Creation abounds with potential because the Creator Himself is the potential principle.
-
-When we describe God, we often say He is omnipotent. _Omnipotent_ means that _God is always potent_. 
-Made up of two words: _omni_, meaning “always,” and _potent_, meaning “full of power,” omnipotent
-means that God is potentially everything. 
-He has within Him the potential for all that is, was, or ever will be. He is omni-potent or
-omnipotent.
+There are many people who are being passed by because others don’t see what is in them. But God has shown me what’s in me, and I know it is in you too. My job is to stop you and say: “Can you see what’s in you? Do you know your potential? Do you know that you are not just someone born in a ghetto over the hill? There’s a wealth
+of potential in you.”
 
 ---
 
-_Everything that was, and everything that is, was in God_. That’s a very important concept. 
-Everything that was and is, was in God. We have to start with God. 
-Before God made anything, before He created things, there was only God. So before anything was, God is.
-God is the root, or source, of all life.
-
-_Before anything was, God is._
+A sculptor sees so differently. They say Michelangelo used to walk around a block of marble for days...just walking around it, talking to himself. First he would see things in the rock; then he would go and take them out.
 
 ---
 
-Before there was time, time was...but it was in God. Before God created a galaxy or the Milky Way, they existed in God. Before there was a universe or a planetary system with the third planet called earth revolving around the sun, before any of that was, they were in God. 
-
-I wonder what it must have been like when God was just by Himself. Let’s try to imagine that for a bit. Here’s God. He steps out on nothing to view nothing, for there was nothing except God. And so God is standing on top of nothing, looking at nothing because everything was in Him.
+Insight like that of a sculptor is seen in the Bible. When the world dumps and rejects you, and you land on the garbage heap of the world, God walks along and picks you up. He looks deep within you and sees a person of great worth.
 
 ---
 
-The Bible tells us: _“In the beginning, God…”_ That means before there was a beginning, there was God. Therefore, God began the beginning and verse 0 of the first chapter of Genesis might possibly
-read: In God was the beginning. Everything that is was in God. Everything that has ever been made was made by God.
+Don’t ever let anybody throw you away. You are not junk. When God looks at you, He sees things that everybody else ignores. You are worth so much that Jesus went to Calvary to salvage and reclaim you. The Spirit of God connected to your spirit is the only true judge of your worth. Don’t accept the opinions of others because they do
+not see what God sees.
 
-When we connect Genesis 1:0, in God was the beginning and John 1:1, in the beginning was the Word, and the Word was with God. He was with God in the beginning, we see that the Word was with God _in_ the beginning, not _at_ the beginning
+---
+
+> — *When God looks at you, He sees things that everybody else ignores.*
