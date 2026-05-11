@@ -1,24 +1,30 @@
-# Week 2 — Day 3
+# Week 3 — Day 3
 
-## In God Was the Beginning
+## God Looked and Saw…
 
-> *In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. Through Him all things were made; without Him nothing was made that has been made. In Him was life…*  
-> — **John 1:1-4**
+> *All the days ordained for me were written in Your book before one of them came to be*  
+> — **Psalm 139:16b**
 
-Before there was a beginning, there was God. Everything that is was in God.
-The Gospel of John tells us that all things were made by the Word.
+God looked at Adam and saw a world. He looked at Abraham and saw nations. In Jacob, a deceiver, He saw a Messiah. In Moses the murderer, God saw a deliverer. Can you imagine looking at a stammering young man and seeing the greatest leader in history? 
 
-Nothing that was created was made without the Word. In _the Word_ was life. _Life_ came out of God. Therefore, before you knew life, life was. _All_ things were made by God. Everything you see, hear, smell, taste, and touch was in God before they came to be. Even what you discern first existed in God.
+God saw a king in a shepherd boy. When the Israelites wanted a king, God sent Samuel to the home of Jesse. All the sons of Jesse twirled out before Samuel, from the greatest to the least. Finally, after Jesse had paraded all of his sons before him, Samuel said, 
 
----
+“I’m sorry. None of these is God’s choice for king. Do you have any other sons?” 
 
-Now let me be a little ridiculous to prove my point. God had roaches and mosquitoes and rats in Him. He had suns and clouds and planets in Him. The cows to make shoe leather…the oil to run our cars…the ore from the mountains to make steel—all these things were in God. Everything on this earth is God’s property. If God would ever call in His property, we would be in big trouble. All things were in God and thus belong to Him. God, in the beginning when there was nothing, contained everything that man _has seen_. He also contained everything man _will ever see_.
+Then Jesse said, “Yes…well no. I just remembered. I do have a little boy, my youngest son. He’s just a little runt who’s out taking care of the sheep.
 
----
+“Bring him,” Samuel replied. “Let me look at him.”
 
-Thus if you had talked to God on the highway of nothingness, you would have been talking to millions of cows and horses and mountains and trees and limousines and hotels and beaches. They all were in God. They were in Him, but no one saw them. That’s why we call God omnipotent. He’s always full of the potential to bring forth
-what you see. God is pregnant with the universe. In essence, if you met God on the highway of nothing, by the corner of nowhere, before there was anything, and you shook His hand, you would be shaking hands with everything, but would not know it. You would be with potential.
+So Jesse sent for his youngest son. When Samuel saw Jesse’s youngest son walk into the house, a little boy, he began to unscrew the lid of his vase. “I think I have found the guy I’m looking for,” Samuel said. (Notice that God chose the son who was out working. He was busy. God chooses busy people.)
 
 ---
 
-> — *God is pregnant with the universe.*
+Most of us are like Jesse. We look, but we don’t see. Were you the black sheep in your family? (You know God likes sheep.) Has your family told you that you are a nobody? Have you been put off and put out and told so many times that you will amount to nothing that you have begun to believe it? Do you feel like the black sheep?
+
+You are probably the one God is waiting for in the house. God sees things deep within you that others can’t see. They look at you and see a nobody; God looks at you and sees a worthwhile somebody. You may spend your whole life competing with others, trying to prove that you are somebody and still feel like nobody. 
+
+Be free from that today! You do not have to live with that any longer. You don’t have to try to be somebody, because you are somebody.
+
+---
+
+> — *God sees things deep within you that others can’t see.*
