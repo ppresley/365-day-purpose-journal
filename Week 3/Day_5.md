@@ -1,26 +1,30 @@
-# Week 2 — Day 5
+# Week 3 — Day 5
 
-## SPOKE Was Hard Work
+## You Came Out of God
 
-> *My own hand laid the foundations of the earth, and My right hand spread out the heavens; when I summon them, they all stand up together*  
-> — **Isaiah 48:13**
+> *Then God said, “Let us make man in Our image, in Our likeness…*  
+> — **Genesis 1:26a**
 
-Everything we see has always been. It became visible when God spoke it into being. God is the source of life.
-What happened when God spoke at creation? How did He get the invisible to become visible? First let me broaden your idea of the word spoke.
-
----
-
-_Spoke_ was a process. What God spoke into visibility began as an idea in His mind. God first conceived in His mind what He wanted to create. He didn’t just say, “I want this.” The prophet Isaiah tells us that God created the earth by first planning its foundations (Isaiah 48:13). After the plans were in His mind, God spoke them into existence. When God was ready to speak, it was just a matter of taking
-what was in the plan and putting it on the site.
+Not only are all things composed of that from which they came, they must also remain attached to that source in order to live. All things must be maintained and sustained by where they came from.
+The minute a plant decides it doesn’t like the earth anymore, it dies. The minute the fish decide they are tired of water, they die. The minute animals decide, “We don’t want to eat any more dirt,” they begin to die.
 
 ---
 
-God laid the groundwork for the earth and spread out the heavens. He created the sun to shine during the day and the moon and stars at night. He gave every star a name. He ordered clouds to fill the sky and breezes to blow. He made the waves to roar in the sea. He sent rain to water the earth and grass to cover the hillside.
-Thunder and lightning were created by His command; hail and sleet were formed by His word. A wool-like blanket of snow He produced for winter; frost and dew He designed.
+Thus, whatever God created came from that to which He spoke. All things were created by God’s word to a source. The source of the creation also becomes, then, the essence of that creation. All things are composed of whatever they came from and hence contain the potential of that source. That means plants only have the potential of
+the soil. Animals only have the potential of dirt.
 
 ---
 
-> — *After the plans were in His mind, God spoke them into existence.*
+All things are composed of whatever they came from and hence contain the potential of that source.
+When God wanted fish, He spoke to the water. When He wanted animals, He spoke to the dirt. When God created human beings, He spoke to Himself.
+
+```
+Then God said, “Let Us make man in Our image, in Our likeness….” So God created man in His own image, in the image of God He created him; male and female He created them (Genesis 1:26-27).
+```
+
+---
+
+> — *God created you by speaking to Himself. You came out of God and thus bear His image and likeness.*
 
 
 
