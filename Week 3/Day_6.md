@@ -1,29 +1,26 @@
-# Week 2 — Day 6
+# Week 3 — Day 6
 
-## God’s Imagination at Work
+## Look at the Inventor, Not the Invention
 
-> *By the seventh day God had finished the work He had been doing; so on the seventh day He rested from all His work. And God blessed the seventh day and made it holy, because on it He rested from all the work of creating that He had done*  
-> — **Genesis 2:2-3**
+> *For although they knew God, they neither glorified Him as God nor gave thanks to Him, but their thinking became futile and their foolish hearts were darkened*  
+> — **Romans 1:21**
 
-God was full of imagination. He was pregnant with many thoughts. His thoughts became ideas, and the ideas became images.Everything that is came out of God as He _spoke_ those images. The unseen became seen, the invisible became visible.
-
-God’s speaking was much like the contractions of a woman in labor. With effort He pushed out each detailed creation. Then God began organizing the things that appeared. He was busy as He set them up, organizing and organizing and reorganizing. Finally God said, “This is good.”
-
----
-
-God didn’t create the world by just _thinking_ the whole thing into being. He _worked_ it into being. After creating a plan in His mind, God spoke to make visible the invisible. (Speaking was one of the ways He worked.) All that was made came from God. Through work He created the world.
-
-For six days God created the heavens and the earth. On the seventh day He rested.
+Never use the creation to find out who you are, because the purpose of something is only in the mind of the One who made it. That is one of the reasons why God has a tremendous problem with idol worship. How can you identify your ability by worshiping a snake? How can you find out your worth by believing that you will come
+back as a rat or a roach? How dare you believe that your purpose for existence can be discovered in a relationship with a wooden statue? You will never know yourself by relating to the creation, only to the
+Creator. _The key to understanding life is in the source of life, not in the life itself._
 
 ---
 
-_Spoke_ must be a fairly serious thing. If God, who is almighty and all powerful, had to rest after creation, _spoke_ it must have been very hard work.
-
-When creation was completed, God rested. God was the first one to _sabbat._ He intended the Sabbath to be a blessing. He knows that life produces work, and work creates the need to rest.
+Many of the inventions man has produced would be misunderstood if only the invention were considered and not the intention of the inventor. In other words, the man who created the refrigerator had in his mind what it was supposed to be used for. He did not intend that it should be used for a trap in the backyard for a kid to be
+locked in and die from suffocation. Even though thousands of children have died in refrigerators, that was not the inventor’s intention.
 
 ---
 
-> — *All that was made came from God. Through work He created the world.*
+The automobile is tearing out lampposts all over the world and destroying people’s homes and lives. But Mr. Ford, who first developed the assembly line to mass produce the automobile, never thought about it that way. He was thinking about transporting people and helping the human race to become a mobile community. He started us to thinking about trolleys and trains and buses. The many people who died through accidents and derailments were not part of his intention. They were not in his mind when he designed his famous T. Ford automobile.
+
+---
+
+> — *You will never know yourself by relating to the creation, only to the Creator.*
 
 
 
