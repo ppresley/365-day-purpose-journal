@@ -2,7 +2,7 @@
 
 ## God Pronounces What He Sees
 
-> *And I tell you that you are Peter, and on this rock I will build my Church, and the gates of Hades will not overcome it *  
+> *And I tell you that you are Peter, and on this rock I will build my Church, and the gates of Hades will not overcome it*  
 > — **Matthew 16:18**
 
 How you feel or what others say about you is not important. You are who God says you are; He sees in you more than you can possibly imagine. Your potential is limited only by God, not others.
