@@ -11,7 +11,7 @@ God always _sees_ what men and women only _look_ at. In a manger, God saw a King
 
 ---
 
-Remember that the seed of every tree is in the fruit of the tree. That means the blessings of the Third World nations are in the Third World nations, and the prosperity of America is in America. When we become concerned about our individual lives or the corporate life of our countries, we come up with all kinds of schemes and plans to solve the problem. But the answer is not in a multitude of systems and programs. The answer is right inside of us. It’s our attitudes that make the difference. No one can _make you_ rowdy or careless or thoughtless. You are rowdy and careless and thoughtless because you _choose_ to be. So stop it! Stop being rowdy…stop being careless…stop being thoughtless. Only you can control how you act. You’ve got the potential to be considerate and sensitive.
+Remember that the seed of every tree is in the fruit of the tree. That means the blessings of the Third World nations are in the Third World nations, and the prosperity of India is in India. When we become concerned about our individual lives or the corporate life of our countries, we come up with all kinds of schemes and plans to solve the problem. But the answer is not in a multitude of systems and programs. The answer is right inside of us. It’s our attitudes that make the difference. No one can _make you_ rowdy or careless or thoughtless. You are rowdy and careless and thoughtless because you _choose_ to be. So stop it! Stop being rowdy…stop being careless…stop being thoughtless. Only you can control how you act. You’ve got the potential to be considerate and sensitive.
 
 ---
 
