@@ -1,26 +1,18 @@
-# Week 3 — Day 2
+# Week 4 — Day 2
 
-## You Are Not Junk
+## Stop Believing What Others Say
 
-> *I praise You because I am fearfully and wonderfully made; Your works are wonderful, I know that full well*  
-> — **Psalm 139:14**
+> *How can you believe if you accept praise from one another, yet make no effort to obtain the praise that comes from the only God?*  
+> — **John 5:44**
 
-There are many people who are being passed by because others don’t see what is in them. But God has shown me what’s in me, and I know it is in you too. My job is to stop you and say: “Can you see what’s in you? Do you know your potential? Do you know that you are not just someone born in a ghetto over the hill? There’s a wealth
-of potential in you.”
+Too often we believe the lies we are told. We believe that we are “no good” and worthless. Jesus says, “Not so. I came to show you that you are more than you think you are.” You are the image of God.
 
----
-
-A sculptor sees so differently. They say Michelangelo used to walk around a block of marble for days...just walking around it, talking to himself. First he would see things in the rock; then he would go and take them out.
+God always _sees_ what men and women only _look_ at. In a manger, God saw a King…in a servant, a Savior…in a sacrifice, salvation…in a crucifixion, a resurrection. In death, God was working at life; in defeat, He was looking at victory. What you or I, or your country or my country, looks like is not what God sees. God looks beyond the surface to the potential deep within. That is God’s way of thinking about everything. Beyond the immediate troubles God sees success, and He continues to call it forth until what He sees becomes reality.
 
 ---
 
-Insight like that of a sculptor is seen in the Bible. When the world dumps and rejects you, and you land on the garbage heap of the world, God walks along and picks you up. He looks deep within you and sees a person of great worth.
+Remember that the seed of every tree is in the fruit of the tree. That means the blessings of the Third World nations are in the Third World nations, and the prosperity of America is in America. When we become concerned about our individual lives or the corporate life of our countries, we come up with all kinds of schemes and plans to solve the problem. But the answer is not in a multitude of systems and programs. The answer is right inside of us. It’s our attitudes that make the difference. No one can _make you_ rowdy or careless or thoughtless. You are rowdy and careless and thoughtless because you _choose_ to be. So stop it! Stop being rowdy…stop being careless…stop being thoughtless. Only you can control how you act. You’ve got the potential to be considerate and sensitive.
 
 ---
 
-Don’t ever let anybody throw you away. You are not junk. When God looks at you, He sees things that everybody else ignores. You are worth so much that Jesus went to Calvary to salvage and reclaim you. The Spirit of God connected to your spirit is the only true judge of your worth. Don’t accept the opinions of others because they do
-not see what God sees.
-
----
-
-> — *When God looks at you, He sees things that everybody else ignores.*
+> — *God looks beyond the surface to the potential deep within.*
