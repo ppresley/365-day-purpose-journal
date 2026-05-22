@@ -1,30 +1,28 @@
-# Week 3 — Day 5
+# Week 4 — Day 5
 
-## You Came Out of God
+## Christ Is In You
 
-> *Then God said, “Let us make man in Our image, in Our likeness…*  
-> — **Genesis 1:26a**
+> *To them God has chosen to make known among the Gentiles the glorious riches of this mystery, which is Christ in you, the hope of glory*  
+> — **Colossians 1:27**
 
-Not only are all things composed of that from which they came, they must also remain attached to that source in order to live. All things must be maintained and sustained by where they came from.
-The minute a plant decides it doesn’t like the earth anymore, it dies. The minute the fish decide they are tired of water, they die. The minute animals decide, “We don’t want to eat any more dirt,” they begin to die.
+I wonder what God sees when He looks at you. I believe He sees Christ. When God looks at you, He does not see you. He sees Christ. Paul, when writing to the Colossian church, proclaimed that God
+had chosen to make known a mystery.
 
----
-
-Thus, whatever God created came from that to which He spoke. All things were created by God’s word to a source. The source of the creation also becomes, then, the essence of that creation. All things are composed of whatever they came from and hence contain the potential of that source. That means plants only have the potential of
-the soil. Animals only have the potential of dirt.
+The mystery is that _Christ is in you_. That is your hope of glory. This suggests, then, that our task is not to get Christ into us, but out of us. Please get this into your minds. _What God sees when He looks at you is Christ_.
 
 ---
 
-All things are composed of whatever they came from and hence contain the potential of that source.
-When God wanted fish, He spoke to the water. When He wanted animals, He spoke to the dirt. When God created human beings, He spoke to Himself.
+Most of us want to be like Jesus. That’s not what God wants. God wants us to be like Christ. Jesus came to show us what Christ looks like when He takes on human form. But it is Christ that God’s looking at. God sees Christ in you. That’s the hope of glory _Christ in you_. Let me explain.
 
-```
-Then God said, “Let Us make man in Our image, in Our likeness….” So God created man in His own image, in the image of God He created him; male and female He created them (Genesis 1:26-27).
-```
+
+Christ is the image of God. The word _image_ does not mean “a statue of something.” It means “the essence of the being.” Christ is the image of God. That means when God created you, He created
+you in His image, and His image is Christ. That’s why the Bible never calls us the Body of Jesus. Jesus was the human manifestation of the heavenly Christ. We humans on earth, with all our fallibilities and weaknesses, God pronounces on us: “You are the Body of Christ.”
+
+In other words, Christ is in us somewhere. Christ is in me. Christ is in you. God knows He is there. His image is there. So God called us Christ.
 
 ---
 
-> — *God created you by speaking to Himself. You came out of God and thus bear His image and likeness.*
+> — *Our task is not to get Christ into us, but out of us.*
 
 
 
