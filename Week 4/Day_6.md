@@ -1,26 +1,28 @@
-# Week 3 — Day 6
+# Week 4 — Day 6
 
-## Look at the Inventor, Not the Invention
+## Who You Really Are
 
-> *For although they knew God, they neither glorified Him as God nor gave thanks to Him, but their thinking became futile and their foolish hearts were darkened*  
-> — **Romans 1:21**
+> *...until we all reach unity in the faith and in the knowledge of the Son of God and become mature, attaining to the whole measure of the fullness of Christ*  
+> — **Ephesians 4:13**
 
-Never use the creation to find out who you are, because the purpose of something is only in the mind of the One who made it. That is one of the reasons why God has a tremendous problem with idol worship. How can you identify your ability by worshiping a snake? How can you find out your worth by believing that you will come
-back as a rat or a roach? How dare you believe that your purpose for existence can be discovered in a relationship with a wooden statue? You will never know yourself by relating to the creation, only to the
-Creator. _The key to understanding life is in the source of life, not in the life itself._
+We humans on earth, with all our fallibilities and weaknesses. God pronounces on us: “You are the Body of Christ.” 
 
----
-
-Many of the inventions man has produced would be misunderstood if only the invention were considered and not the intention of the inventor. In other words, the man who created the refrigerator had in his mind what it was supposed to be used for. He did not intend that it should be used for a trap in the backyard for a kid to be
-locked in and die from suffocation. Even though thousands of children have died in refrigerators, that was not the inventor’s intention.
+In other words, Christ is in us somewhere. Christ is in me. Christ is in you. God knows He is there. His image is there. So God called us Christ.
 
 ---
 
-The automobile is tearing out lampposts all over the world and destroying people’s homes and lives. But Mr. Ford, who first developed the assembly line to mass produce the automobile, never thought about it that way. He was thinking about transporting people and helping the human race to become a mobile community. He started us to thinking about trolleys and trains and buses. The many people who died through accidents and derailments were not part of his intention. They were not in his mind when he designed his famous T. Ford automobile.
+If we go to God and say, “God, please introduce me to your people,” God will say, “Sure. Here is Christ.” But we’ll say, “No. No. No. I want to meet Christ,” to which God will reply, “Sure. Here’s Christ” as He shows us the Church. When we want to meet Christ, God will show us the Church. But we can’t accept this because we think Christ is in Heaven. No, He isn’t. _Jesus_ is in Heaven. _Christ_ is sitting in your clothes, living in the body of the believer. Christ is the essence of God. He’s God Himself.
 
 ---
 
-> — *You will never know yourself by relating to the creation, only to the Creator.*
+God intended for you to be created in His image. Although you may say, “I want to be like Jesus,” God says, “There’s something deeper.” You were lost and Jesus came to bring you back. God sent Jesus so you could see yourself.
+
+God already knows who He is. He doesn’t need your praise to make Him feel like God. God doesn’t need you to tell Him how great He is. He knew it before you ever thought of praising Him. God wants you to know who you are, who you were supposed to look like. He’s after the real person buried under the cap of your sin. Your
+IQ doesn’t measure who you are, God does. Your true IQ is spelled H-O-L-Y S-P-I-R-I-T, because you have what God is. Christ is in you. That’s who you are.
+
+---
+
+> — *Christ is in you. That’s who you are.*
 
 
 
