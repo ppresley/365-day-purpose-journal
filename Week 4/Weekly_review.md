@@ -1,8 +1,7 @@
-# Week 3 — Review
+# Week 4 — Review
 
 ## REVIEW the principles from this week:
 
-- All things have the same components and essence as their source.
-- When God created human beings, He spoke to Himself.
-- You came out of God.
-- You will never know yourself by relating to the creation, only to the Creator.
+- Your potential is much greater than what you are right now.
+- Your potential is limited only by God, not others.
+- God sees Christ in you.
