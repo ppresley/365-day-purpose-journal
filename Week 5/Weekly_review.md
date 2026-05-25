@@ -1,7 +1,8 @@
-# Week 4 — Review
+# Week 5 — Review
 
 ## REVIEW the principles from this week:
 
-- Your potential is much greater than what you are right now.
-- Your potential is limited only by God, not others.
-- God sees Christ in you.
+- Satan destroyed man’s potential to be like his Creator.
+- Satan distorted man’s self-concept—his esteem for the beautiful creation God made him to be.
+- Satan destroyed man’s true intelligence, which is a spiritual relationship with God.
+- When satan crippled man’s real intelligence, man looked outside himself to find knowledge.

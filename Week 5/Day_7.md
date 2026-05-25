@@ -1,36 +1,23 @@
-# Week 4 — Day 7
+# Week 5 — Day 7
 
-## Don’t Bury Your Talent
+## What You Have Isn’t Life
 
-> *But the man who had received the one talent went off, dug a hole in the ground and hid his master’s money*  
-> — **Matthew 25:18**
+> *...whoever drinks the water I give him will never thirst. Indeed, the water I give him will become in him a spring of water welling up to eternal life*  
+> — **John 4:14**
 
-Scientists in the field of human potential have estimated that we use as little as ten percent of our abilities. Ninety percent of our capabilities lie dormant and wasted. It is sad that we use only a small part of our abilities and talents. Most of us have no idea how much talent and potential we possess.
+But Jesus came to destroy satan’s lies. He came to free us from those things that retard, distort, and short-circuit everything we are capable of being and doing. He said,
 
----
+_“I am come that they might have life, and might have it abundantly”_ (John 10:10 KJV).
 
-Consider the life of Abraham Lincoln. His story is one of the most dramatic examples of a man struggling to release the wealth of potential locked up inside him:
-- He lost his job in 1832.
-- He was elected to the legislature in 1834.
-- He suffered the death of his sweetheart in 1834.
-- He suffered a nervous breakdown in 1836.
-- He was defeated for speaker of the State Legislature in 1838.
-- He was defeated for nomination for Congress in 1843.
-- He was elected to Congress in 1846.
-- He was rejected for the position of land officer in 1849.
-- He was defeated for the Senate in 1854.
-- He was defeated for the nomination for vice president of the United States in 1856.
-- He again was defeated for the Senate in 1858.
-- He was elected president of the United States in 1860.
+OK. That’s fine. I have life now.
+
+“But no, that’s not enough. I came that you may have an abundance of life.”
+
+We think life is what we have now. No! In the Greek, the same word is used for abundance as is used for fountain. Jesus came to take the cap off your well…to unclog the true you…to open up the capacity of who you are and who you can be. We are going to have an oil spill. This thing is going to explode. Jesus didn’t come just to take off your well cover. He came to start an explosion of water, a potential welling up and never stopping. He said, _“Whoever believes in Me, as the Scripture has said, streams of living water will flow from within him”_ (John 7:38).
 
 ---
 
-_Everything in life was created with potential and possesses the potential principle_. In every seed there is a tree…in every bird a flock…in every fish a school…in every sheep a flock… in every cow a herd…in every boy a man…in every girl a woman…in every nation a generation. Tragedy strikes when a tree dies in a seed, a man
-in a boy, a woman in a girl, an idea in a mind. For untold millions, visions die unseen, songs die unsung, plans die unexecuted and futures die buried in the past. The problems of our world go unanswered because potential remains buried.
-
----
-
-> — *Most of us have no idea how much talent and potential we possess.*
+> — *Jesus came to take the cap off your well…to unclog the true you.*
 
 
 
