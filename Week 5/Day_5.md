@@ -1,28 +1,22 @@
-# Week 4 — Day 5
+# Week 5 — Day 5
 
-## Christ Is In You
+## Come On—Get Smart!
 
-> *To them God has chosen to make known among the Gentiles the glorious riches of this mystery, which is Christ in you, the hope of glory*  
-> — **Colossians 1:27**
+> *Let us discern for ourselves what is right; let us learn together what is good*  
+> — **Job 34:4**
 
-I wonder what God sees when He looks at you. I believe He sees Christ. When God looks at you, He does not see you. He sees Christ. Paul, when writing to the Colossian church, proclaimed that God
-had chosen to make known a mystery.
-
-The mystery is that _Christ is in you_. That is your hope of glory. This suggests, then, that our task is not to get Christ into us, but out of us. Please get this into your minds. _What God sees when He looks at you is Christ_.
+Satan came to destroy our real intelligence. In the Garden, a strange word is used in the Hebrew to talk about knowing. The Bible says Adam and Eve knew that they were naked (see Genesis 3:7). _Knew_ means they “became physically or sensually aware.” Their senses suddenly took on leadership. Thus the soul became alive without the spirit directing it. Man began to live from the outside, instead of the inside. Adam and Eve became aware of their nakedness. They became aware of the leaves that could be used to cover themselves. They became conscious of shame and fear, the things that come from the outside, from the intellect.
 
 ---
 
-Most of us want to be like Jesus. That’s not what God wants. God wants us to be like Christ. Jesus came to show us what Christ looks like when He takes on human form. But it is Christ that God’s looking at. God sees Christ in you. That’s the hope of glory _Christ in you_. Let me explain.
+Satan destroyed man’s true intelligence, which is a spiritual relationship with God. When we are connected with God, our spirits can know anything. That’s why the knowledge God communicates is not learned. It is discerned. The knowledge of God isn’t found in any book; it’s a deeper knowledge. Your real intelligence is not studied; it is discerned. Wow!
 
 
-Christ is the image of God. The word _image_ does not mean “a statue of something.” It means “the essence of the being.” Christ is the image of God. That means when God created you, He created
-you in His image, and His image is Christ. That’s why the Bible never calls us the Body of Jesus. Jesus was the human manifestation of the heavenly Christ. We humans on earth, with all our fallibilities and weaknesses, God pronounces on us: “You are the Body of Christ.”
-
-In other words, Christ is in us somewhere. Christ is in me. Christ is in you. God knows He is there. His image is there. So God called us Christ.
+When man lost his relationship with God, he became a victim of education. He began to look to books and movies and the words of others, what he can see, hear, taste, feel, and touch, to gain knowledge. Those things became our sources of information. When satan destroyed our real intelligence, we looked outside ourselves to find knowledge.
 
 ---
 
-> — *Our task is not to get Christ into us, but out of us.*
+> — *Your real intelligence is not studied, it is discerned.*
 
 
 
