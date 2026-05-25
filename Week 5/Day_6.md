@@ -1,28 +1,23 @@
-# Week 4 — Day 6
+# Week 5 — Day 6
 
-## Who You Really Are
+## You’ll Never Be Anything
 
-> *...until we all reach unity in the faith and in the knowledge of the Son of God and become mature, attaining to the whole measure of the fullness of Christ*  
-> — **Ephesians 4:13**
+> *Commit to the Lord whatever you do, and your plans will succeed*  
+> — **Proverbs 16:3**
 
-We humans on earth, with all our fallibilities and weaknesses. God pronounces on us: “You are the Body of Christ.” 
-
-In other words, Christ is in us somewhere. Christ is in me. Christ is in you. God knows He is there. His image is there. So God called us Christ.
+Everything in life was created with potential and possesses the potential principle. In every seed there is a tree…in every bird a flock…in every fish a school…in every sheep a flock…in every cow a herd…in every boy a man…in every girl a woman…in every nation a generation. Tragedy strikes when a tree dies in a seed, a man in a boy, a woman in a girl, an idea in a mind. For untold millions, visions die unseen, songs die unsung, plans die unexecuted and futures die buried in the past. The problems of our world go unanswered because potential remains buried.
 
 ---
 
-If we go to God and say, “God, please introduce me to your people,” God will say, “Sure. Here is Christ.” But we’ll say, “No. No. No. I want to meet Christ,” to which God will reply, “Sure. Here’s Christ” as He shows us the Church. When we want to meet Christ, God will show us the Church. But we can’t accept this because we think Christ is in Heaven. No, He isn’t. _Jesus_ is in Heaven. _Christ_ is sitting in your clothes, living in the body of the believer. Christ is the essence of God. He’s God Himself.
+By destroying our relationship with God, satan capped off our life potential. He continually destroys any possibility that we might become more than we already are: He puts teachers in our classrooms to call us stupid. He sends brothers and sisters to call us dumb and “no good.” He gives us parents who tell us, “You’ll never be anything.”
 
 ---
 
-God intended for you to be created in His image. Although you may say, “I want to be like Jesus,” God says, “There’s something deeper.” You were lost and Jesus came to bring you back. God sent Jesus so you could see yourself.
-
-God already knows who He is. He doesn’t need your praise to make Him feel like God. God doesn’t need you to tell Him how great He is. He knew it before you ever thought of praising Him. God wants you to know who you are, who you were supposed to look like. He’s after the real person buried under the cap of your sin. Your
-IQ doesn’t measure who you are, God does. Your true IQ is spelled H-O-L-Y S-P-I-R-I-T, because you have what God is. Christ is in you. That’s who you are.
+Satan sets us up. He anoints your relatives to call you a bastard. He sets her up to cap off what you are. Satan chops up your self-confidence and slams the door on your potential by convincing you that you are nothing: “You’ll never rise above your family’s status. You’ll never go beyond where your neighborhood took you. You’ll never be any more than your mom and your dad. You don’t stand a chance.” The devil has been teaching and preaching that to keep us down. He is very skilled at this deceptive art.
 
 ---
 
-> — *Christ is in you. That’s who you are.*
+> — *By destroying our relationship with God, satan capped off our life potential.*
 
 
 
