@@ -1,16 +1,22 @@
-# Week 5 — Day 3
+# Week 6 — Day 3
 
-## God’s Holding Back On You
+## Destruction Destroyed
 
-> *I know that everything God does will endure forever; nothing can be added to it and nothing taken from it. God does it so that men will revere Him*  
-> — **Ecclesiastes 3:14**
+> *[Christ] who gave himself for our sins to rescue us from the present evil age, according to the will of our God and Father*  
+> — **Galatians 1:4**
 
-_“Father, I want those you have given Me to be with Me where I am, and to see My glory, the glory you have given Me because you loved Me before the creation of the world. Righteous Father, though the world does not know You, I know You, and they know that You have sent Me. I have made You known to them, and will continue to make You known in order that the love You have for Me may be in them and that I myself may be in them_ (John 17:24-26).
+Scientists in the field of human potential have estimated that we use as little as ten percent of our abilities. Ninety percent of our capacities lie dormant and wasted. It is sad that we use only a small part of our abilities and talents. Most of us have no idea how much talent and potential we possess.
+The work of the devil is to kill and steal and destroy, he delights up capping off our potential. But 1 John 3:8b says, 
+
+_The reason the Son of God appeared was to destroy the devil’s work._
 
 ---
 
-In the Garden of Eden, satan first deceived Eve by questioning whether God actually said that she could not eat from the forbidden tree. Next, the devil deceived her by telling her that she could be like God. Then, satan continued to work his art of deception when he said, “God is hiding something from you.” He destroyed Adam and Eve’s concept of God. To the man and the woman, God became Someone who was holding back on them. Satan said, “God doesn’t want you to know what He knows.” What do you mean God didn’t want Adam and Eve to know what He knew? Adam and Eve were _born_ related in spirit with God. God _created_ them to know Him. Thus, satan stole both man’s potential to be like God and his understanding of God.
+What does it mean to destroy the works of the devil? How does Jesus do His job? Jesus reverses what satan has done. Whatever Jesus undoes, satan did. Whatever works Jesus does, satan undid it first.
+
+For example, when Jesus took sickness from a person’s body, He undid the works of the devil. Thus the work of the devil was to put the sickness into that body. When Jesus took away our sins, He destroyed the devil’s work of convincing us to sin. If Jesus fed hungry people, then it must mean that satan brings poverty and hunger. If Jesus opened the eyes of the blind, then satan must close them. Jesus came to destroy the works of the devil. Whatever He did destroyed satan’s previous works. Thus when Jesus says, “Everything is possible if you’ll just believe” (see Mark 9:23), He is reversing the lies satan has fed us. Jesus came to destroy satan’s
+destruction.
 
 ---
 
-> — *God created them [people] to know Him.*
+> — *Jesus came to destroy satan’s destruction.*

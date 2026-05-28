@@ -1,22 +1,15 @@
-# Week 5 — Day 5
+# Week 6 — Day 5
 
-## Come On—Get Smart!
+## All Clogged Up
 
-> *Let us discern for ourselves what is right; let us learn together what is good*  
-> — **Job 34:4**
+> *…made us alive with Christ even when we were dead in transgressions—it is by grace you have been saved*  
+> — **Ephesians 2:5**
 
-Satan came to destroy our real intelligence. In the Garden, a strange word is used in the Hebrew to talk about knowing. The Bible says Adam and Eve knew that they were naked (see Genesis 3:7). _Knew_ means they “became physically or sensually aware.” Their senses suddenly took on leadership. Thus the soul became alive without the spirit directing it. Man began to live from the outside, instead of the inside. Adam and Eve became aware of their nakedness. They became aware of the leaves that could be used to cover themselves. They became conscious of shame and fear, the things that come from the outside, from the intellect.
-
----
-
-Satan destroyed man’s true intelligence, which is a spiritual relationship with God. When we are connected with God, our spirits can know anything. That’s why the knowledge God communicates is not learned. It is discerned. The knowledge of God isn’t found in any book; it’s a deeper knowledge. Your real intelligence is not studied; it is discerned. Wow!
-
-
-When man lost his relationship with God, he became a victim of education. He began to look to books and movies and the words of others, what he can see, hear, taste, feel, and touch, to gain knowledge. Those things became our sources of information. When satan destroyed our real intelligence, we looked outside ourselves to find knowledge.
+Are there things in your life that have been holding you back from the things you should be doing? Are you a potential leader in your community but you’re full of alcohol and you’re lying in the gutter? Has cocaine stolen your potential to be the top student in your class? Is your brain all messed up so you can’t even think any more? Are you in danger of being kicked out of school though you were an A student before you took the stuff? Have you run off with a dumb guy and gotten pregnant? Do you have to drop out of school and give up your visions of becoming a doctor or a lawyer, a scientist or an agricultural expert? Has sin clogged up your potential? Did you have a business that was going well, with limitless potential, until somebody said to you, “I want you to sell some drugs for me. You’ll make a lot more than you do in this business”? So you became greedy. You went ahead and sold the drugs—only you were caught and now you have a record and your business is destroyed. Sin clogs our potential. It messes up the plan God has for each of our lives.
 
 ---
 
-> — *Your real intelligence is not studied, it is discerned.*
+> — *Sin clogs our potential.*
 
 
 

@@ -1,23 +1,17 @@
-# Week 5 — Day 6
+# Week 6 — Day 6
 
-## You’ll Never Be Anything
+## The Clog In Our Potential
 
-> *Commit to the Lord whatever you do, and your plans will succeed*  
-> — **Proverbs 16:3**
+> *For You know the grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, so that you through His poverty might become rich*  
+> — **2 Corinthians 8:9**
 
-Everything in life was created with potential and possesses the potential principle. In every seed there is a tree…in every bird a flock…in every fish a school…in every sheep a flock…in every cow a herd…in every boy a man…in every girl a woman…in every nation a generation. Tragedy strikes when a tree dies in a seed, a man in a boy, a woman in a girl, an idea in a mind. For untold millions, visions die unseen, songs die unsung, plans die unexecuted and futures die buried in the past. The problems of our world go unanswered because potential remains buried.
-
----
-
-By destroying our relationship with God, satan capped off our life potential. He continually destroys any possibility that we might become more than we already are: He puts teachers in our classrooms to call us stupid. He sends brothers and sisters to call us dumb and “no good.” He gives us parents who tell us, “You’ll never be anything.”
+Sin clogs our potential. It messes up the plan God has for each of our lives. It takes away the “And they lived happily ever after” and replaces it with “And they struggled but didn’t make it through the
+day.” Don’t let that be the last chapter in the book God has written on you. God sent Jesus to die for you, not for Himself. Jesus knows _His_ potential. He doesn’t need to find out what it is. God doesn’t have
+any problem with His potential. He is omnipotent. The problem is that _you_ don’t know _your_ potential. You have been destroyed by the devil, and sin is stunting your growth. Jesus came, not to die for Himself, but for you, so you could be reconnected with the Source of Life. For this reason Jesus came into the world, to destroy the works of the devil that are holding you down. Jesus came to uncap your well. He gave His life to restore your relationship with God, to give you abundant, flowing, gushing life.
 
 ---
 
-Satan sets us up. He anoints your relatives to call you a bastard. He sets her up to cap off what you are. Satan chops up your self-confidence and slams the door on your potential by convincing you that you are nothing: “You’ll never rise above your family’s status. You’ll never go beyond where your neighborhood took you. You’ll never be any more than your mom and your dad. You don’t stand a chance.” The devil has been teaching and preaching that to keep us down. He is very skilled at this deceptive art.
-
----
-
-> — *By destroying our relationship with God, satan capped off our life potential.*
+> — *Sin messes up the plan God has for each of our lives.*
 
 
 

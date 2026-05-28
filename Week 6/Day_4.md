@@ -1,22 +1,21 @@
-# Week 5 — Day 4
+# Week 6 — Day 4
 
-## Aren’t You Ugly!
+## The Cap and the Crowbar
 
-> *When he lies, he speaks his native language, for he is a liar and the father of lies*  
-> — **John 8:44b**
+> *Whoever believes in Me, as the Scripture has said, streams of living water will flow from within him*  
+> — **John 7:38**
 
-The deceiver also distorted man’s self-concept. He said to them: “Look at you. You are naked.” So the man and woman felt bad about themselves and they put on clothes. They tried to cover up their bodies.
-
-Ever since that day, we have become professional _“cover-ups.”_ We don’t like ourselves. We don’t like our physical bodies. Yuck! I don’t like how skinny I am…how fat I am…how my hair grows…how my eyes are…how my lips are. I don’t like my black, brown, red, yellow, or white skin. So we try to cover up what we don’t like. It is strange how we work on things. If our hair is curly, we straighten it. If our skin is too pale, we get a tan. We don’t like what we are. Nobody is satisfied with themselves. We all walk around saying, “Why do you want to be like me? I want to be like you.”
-
----
-
-This attitude is from the devil. We can’t just be ourselves because satan has destroyed our appreciation of what God made. Our potential has been distorted so that we don’t want to be black or tall or fat. We don’t want to have curly hair or fat lips or small eyes. We have accepted satan’s ploy to destroy our esteem for the beautiful creation God made us to be.
-
-Satan, who comes to destroy everything God created, has destroyed our concepts of ourselves. Because we do not like ourselves, we do all kinds of dumb things. If you love yourself, you are not going to lower your standards. You will not sell yourself to anybody. You won’t allow anybody to buy you. You are too expensive.
+Satan tells you that you aren’t going to amount to anything: “You aren’t going to be anything…you can’t do anything…you will always be what you now are.” Jesus comes to undo that. He says, “You can be anything you think.” Jesus rips the top right off your capped well. He says, “Go ahead, gush forth.” Thus, a tremendous struggle between two destroyers goes on within us, one destroyer uses a cap, the other a crowbar. Every time
+the one with the crowbar yanks the top off, the other guy runs around with the cap. The minute we give him a chance, he covers us up again. The struggle is continual. Each day we experience the tension.
 
 ---
 
-> — *We have become professional “cover-ups”*
+Jesus says, “You are saved.” Satan says, “You aren’t saved.” Jesus says, “You are healed.” Satan says, “But you still feel the pain.” Jesus says, “You are free from drugs.” Satan says, “You are hooked
+for life.”. Jesus came to reverse what the devil has done. The devil came to destroy our potential. He distorts, retards, short-circuits and caps off that which God has placed within us. He uses sin to clog up our
+potential capacity.
+
+---
+
+> — *Jesus came to reverse what the devil has done.*
 
 

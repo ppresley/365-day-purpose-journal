@@ -1,21 +1,23 @@
-# Week 5 — Day 1
+# Week 6 — Day 1
 
-## No Limits
+## Fountains of Life
 
-> *…The reason the Son of God appeared was to destroy the devil’s work*  
-> — **1 John 3:8**
+> *I am come that they might have life, and might have it abundantly*  
+> — **John 10:10 KJV**
 
-In the beginning, God created man by speaking to Himself. He took a little bit of Himself and put it into the first man so Adam would be like Him and could share in His life.
+Jesus came to start an explosion of water, a potential welling up and never stopping. He said,
 
+_“Whoever believes in Me, as the Scripture has said, streams of living water will flow from within him”_ (John 7:38).
 
-But the life God intended for His children was destroyed by their disobedience. Satan’s deception and the sin of the man and the woman destroyed the relationship between God and the creatures He had taken out of Himself. The fellowship of like thoughts and purposes was broken, and man’s relationship with God became distorted and skewed. Human beings lost their potential to be like the Creator, to know His thoughts and see through His eyes. Through sin, our access to God was cut off and the wealth of God’s secret wisdom was buried. The deep things of God became more than we could know or comprehend.
+_“…whoever drinks the water I give him will never thirst. Indeed, the water I give him will become in him a spring of water welling up to eternal life”_ (John 4:14).
 
----
-
-Satan came into our lives to minimize, nullify, and destroy our potential. He has killed, stolen, and destroyed what God planted deep within each person. Through the years, the devil has succeeded in
-convincing men and women, each with a little part of God, that they are worthless, rotten, incapable people. But in the fullness of time Jesus came into the world to address this very problem. Jesus came to wage “the battle of the caps”, _the battle of the destroyers_. There are two destroyers in the world. One is satan; the
-other is Jesus. Satan comes to destroy, and Jesus comes to destroy.
+Jesus came so we can have fountains of life. Man, that’s impressive to me!
 
 ---
 
-> — *When man puts a limit on what he can be, he has put a limit on what he will be.*
+That means until we get saved, we don’t have any life. If you just became born again, you are finally getting back to your real self. All you have done for the last ten years that made you think you were somebody is but a trickle. You haven’t changed the world, man. You haven’t changed a man’s life for eternity yet. You haven’t touched a young boy for eternal life yet. You’ve put clothes on the boy’s back, but you haven’t put anything on his spirit. You haven’t done anything yet! But there is a fountain, an abundance of life, welling up in you
+so you can do and be something. It begins when you return to your Source through Jesus Christ.
+
+---
+
+> — *There is an abundance of life, welling up in you so you can do and be something.*

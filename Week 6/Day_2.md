@@ -1,18 +1,18 @@
-# Week 5 — Day 2
+# Week 6 — Day 2
 
-## Do You Want To Be Like God?
+## Uncapping the Well
 
-> *For God knows that when you eat of it your eyes will be opened, and you will be like God, knowing good and evil*  
-> — **Genesis 3:5**
+> *But when He, the Spirit of truth, comes, He will guide you into all truth. He will not speak on His own; He will speak only what He hears, and He will tell you what is yet to come*  
+> — **John 16:13**
 
-_Now the serpent was more crafty than any of the wild animals the Lord God had made. He said to the woman, “Did God really say, ‘You must not eat from any tree in the garden’?” The woman said to the serpent, “We may eat fruit from the trees in the garden, but God did say, ‘You must not eat fruit from the tree that is in the middle of the garden, and you must not touch it, or you will die.’”_
+Satan is the destroyer who comes to kill and steal and destroy. No one in the world stifles and clogs up and caps your potential like the devil does. He comes with a scheme to make you believe you can be nothing more than you have already seen. Jesus came to destroy this scheme. He came to unclog you and show you your true self. He’s the best destroyer I know. I love this destroyer.
 
-_“You will not surely die,” the serpent said to the woman. “For God knows that when you eat of it your eyes will be opened, and you will be like God, knowing good and evil.” When the woman saw that the fruit of the tree was good for food and pleasing to the eye, and also desirable for gaining wisdom, she took some and ate it. She also gave some to her husband, who was with her, and he ate it. Then the eyes of both of them were opened, and they realized they were naked; so they sewed fig leaves together and made coverings for themselves_ (Genesis 3:1-7).
-
----
-
-Satan is God’s enemy and ours. He is our adversary, out to blind us to the truth of God’s love and the wisdom that offers us hope. Anything that is destructive,anything that steals something from you or destroys something that belongs to you is from the enemy. He is a destruction mechanism that comes to destroy, kill and steal. But what is he destroying? First, satan destroyed man’s potential to be like his Creator. Satan said to Adam, “Do you want to be like God? Pick that fruit.” The man and woman already were like God; but by following the advice of satan they were destroyed. Their potential to be like God was clogged up right then when they failed, it was capped off.
+_He who does what is sinful is of the devil, because the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the devil’s work_ (1 John 3:8).
 
 ---
 
-> — *Satan destroyed man’s potential to be like his Creator.*
+First John 3:8 says that Jesus came into the world to destroy the works of the devil. The work of the devil is to kill and steal and destroy, he delights in capping off our potential. The work of Jesus is to tear off the cap, opening up what satan closed. Jesus came to do exactly the opposite of what satan has done. Jesus came, not to convince God of anything, but to convince us about who we really are. His job is to put us back in touch with what God put within us at birth.
+
+---
+
+> — *Jesus came, not to convince God of anything, but to convince us about who we really are.*

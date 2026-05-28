@@ -1,23 +1,27 @@
-# Week 5 — Day 7
+# Week 6 — Day 7
 
-## What You Have Isn’t Life
+## Get Out the Clog
 
-> *...whoever drinks the water I give him will never thirst. Indeed, the water I give him will become in him a spring of water welling up to eternal life*  
-> — **John 4:14**
+> *His master replied, “Well done, good and faithful servant! You have been faithful with a few things; I will put you in charge of many things. Come and share your master’s happiness!”*  
+> — **Matthew 25:21**
 
-But Jesus came to destroy satan’s lies. He came to free us from those things that retard, distort, and short-circuit everything we are capable of being and doing. He said,
+The Bible tells a story about talents and potential. The talents in the story are symbols of the vast store of abilities our Creator has planted within us. In the story, the master of the estate entrusts some
+of his wealth to three of his servants. The first man invests his talent and doubles the wealth the master had entrusted to his care. The second servant also doubles what the master had given him. With them
+the master is very pleased. Finally the master turns to the third servant and asks, “What have you done with your talent?”
 
-_“I am come that they might have life, and might have it abundantly”_ (John 10:10 KJV).
+The servant answered, “I was afraid to misuse the talent, so I carefully hid it. Here it is. I am giving it back to you in the same condition that I received it.”
 
-OK. That’s fine. I have life now.
+In fury the master rebuked his servant, “You wicked and lazy servant. How dare you not use the gifts I gave to you?”
 
-“But no, that’s not enough. I came that you may have an abundance of life.”
-
-We think life is what we have now. No! In the Greek, the same word is used for abundance as is used for fountain. Jesus came to take the cap off your well…to unclog the true you…to open up the capacity of who you are and who you can be. We are going to have an oil spill. This thing is going to explode. Jesus didn’t come just to take off your well cover. He came to start an explosion of water, a potential welling up and never stopping. He said, _“Whoever believes in Me, as the Scripture has said, streams of living water will flow from within him”_ (John 7:38).
+The master then said, “Take my money from him and throw this useless fellow into the street.”
 
 ---
 
-> — *Jesus came to take the cap off your well…to unclog the true you.*
+We are responsible for the potential stored within us. We must learn to understand it and effectively use it. Too often our successes prevent us from seeking that which yet lies within us. Success becomes our enemy as we settle for what we have. Refuse to be satisfied with your last accomplishment, because potential never has a retirement plan. Do not let what you _cannot_ do interfere with what you _can_ do. In essence, what you see is not all there is.
+
+---
+
+> — *We are responsible for the potential stored within us.*
 
 
 
