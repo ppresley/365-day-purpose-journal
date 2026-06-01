@@ -1,4 +1,4 @@
-# Week 3 — Day 6
+# Week 3 — Day 6 (WHO ARE YOU?)
 
 ## Look at the Inventor, Not the Invention
 

@@ -1,4 +1,4 @@
-# Week 3 — Day 1
+# Week 3 — Day 1 (WHO ARE YOU?)
 
 ## Many Look, Few See
 

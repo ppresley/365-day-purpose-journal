@@ -1,4 +1,4 @@
-# Week 3 — Day 3
+# Week 3 — Day 3 (WHO ARE YOU?)
 
 ## God Looked and Saw…
 

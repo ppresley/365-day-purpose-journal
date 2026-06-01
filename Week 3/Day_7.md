@@ -1,4 +1,4 @@
-# Week 3 — Day 7
+# Week 3 — Day 7 (WHO ARE YOU?)
 
 ## You Have Part of God
 
