@@ -1,17 +1,23 @@
-# Week 6 — Day 6 (WHOSE WISDOM?)
+# Week 7 — Day 6 (WHOSE WISDOM?)
 
-## The Clog In Our Potential
+## Your Secret Wisdom
 
-> *For You know the grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, so that you through His poverty might become rich*  
-> — **2 Corinthians 8:9**
+> *We do, however, speak a message of wisdom among the mature, but not the wisdom of this age or of the rulers of this age, who are coming to nothing. No, we speak of God’s secret wisdom, a wisdom that has been hidden and that God destined for our glory before time began*  
+> — **1 Corinthians 2:6-7**
 
-Sin clogs our potential. It messes up the plan God has for each of our lives. It takes away the “And they lived happily ever after” and replaces it with “And they struggled but didn’t make it through the
-day.” Don’t let that be the last chapter in the book God has written on you. God sent Jesus to die for you, not for Himself. Jesus knows _His_ potential. He doesn’t need to find out what it is. God doesn’t have
-any problem with His potential. He is omnipotent. The problem is that _you_ don’t know _your_ potential. You have been destroyed by the devil, and sin is stunting your growth. Jesus came, not to die for Himself, but for you, so you could be reconnected with the Source of Life. For this reason Jesus came into the world, to destroy the works of the devil that are holding you down. Jesus came to uncap your well. He gave His life to restore your relationship with God, to give you abundant, flowing, gushing life.
+God has given you a secret wisdom that He placed in you before you were born. He planted within you a potential something, a wisdom to know who you are and what you were created to be and do.
+That potential something was in God, but He allowed it to leak into you when He pulled you out of Himself. It’s a hidden understanding that follows neither the wisdom of our society nor the insights of our leaders. Unlike the wisdom of the world, which is worthless, God’s secret wisdom about you is a priceless jewel.
 
 ---
 
-> — *Sin messes up the plan God has for each of our lives.*
+Many people die without unveiling their wealth of wisdom. They die in total foolishness, without experiencing the life that dwells within. What a pity! They have missed God’s secret wisdom. (_Secret_ here does not mean “to be withheld from.” It rather has the meaning of “to have never known existed.” There is a difference. God is not holding back from the world. He is not withholding from us our true potential. It’s just that we have never known that it is within us.) They have missed the wisdom God designed before the beginning of time for the honor of man.
+
+This wisdom is like a secret that was supposed to be known before we were created. It’s a wisdom from God that He is keeping for us. It was in God and now it dwells in _us_. In other words, you
+were born with wisdom that literally came out of God. You have the ability to line up with God. You are in the God class.
+
+---
+
+> — *You have the ability to line up with God.*
 
 
 
