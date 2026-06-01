@@ -1,18 +1,21 @@
-# Week 6 — Day 2 (WHOSE WISDOM?)
+# Week 7 — Day 2 (WHOSE WISDOM?)
 
-## Uncapping the Well
+## Our Main Goal
 
-> *But when He, the Spirit of truth, comes, He will guide you into all truth. He will not speak on His own; He will speak only what He hears, and He will tell you what is yet to come*  
-> — **John 16:13**
+> *Who endowed the heart with wisdom or gave understanding to the mind?*  
+> — **Job 38:36**
 
-Satan is the destroyer who comes to kill and steal and destroy. No one in the world stifles and clogs up and caps your potential like the devil does. He comes with a scheme to make you believe you can be nothing more than you have already seen. Jesus came to destroy this scheme. He came to unclog you and show you your true self. He’s the best destroyer I know. I love this destroyer.
-
-_He who does what is sinful is of the devil, because the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the devil’s work_ (1 John 3:8).
-
----
-
-First John 3:8 says that Jesus came into the world to destroy the works of the devil. The work of the devil is to kill and steal and destroy, he delights in capping off our potential. The work of Jesus is to tear off the cap, opening up what satan closed. Jesus came to do exactly the opposite of what satan has done. Jesus came, not to convince God of anything, but to convince us about who we really are. His job is to put us back in touch with what God put within us at birth.
+The potential of everything is related to its purpose for being. Before we can understand the potential of a thing or person, we first must know the conditions under which it was meant to exist. Thus the most important thing for you and me, as human beings, is to try and find out for the rest of our lives what is the purpose for everything in life. That is our main goal. Unless we ask ourselves, “What is the purpose for everything in life?” we will die without having
+experienced the potential of everything. We will miss the wisdom of God in creation.
 
 ---
 
-> — *Jesus came, not to convince God of anything, but to convince us about who we really are.*
+The apostle Paul, in the first chapter of First Corinthians, describes the wisdom of the world and the wisdom of God.
+
+_Where is the wise man? Where is the scholar? Where is the philosopher of this age? has not God made foolish the wisdom of the world? For since in the wisdom of God the world through its wisdom did not know Him, God was pleased through the foolishness of what was preached to save those who believe. Jews demand miraculous signs and Greeks look for wisdom, but we preach Christ crucified: a stumbling block to Jews and foolishness to Gentiles_ (1 Corinthians 1:20-23).
+
+When somebody tells you they are wise, don’t get carried away. Although they may have wisdom, it might not be the right kind of wisdom.
+
+---
+
+> — *The most important thing is to try and find out what is the purpose for everything in life.*
