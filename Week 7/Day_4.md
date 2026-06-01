@@ -1,21 +1,19 @@
-# Week 6 — Day 4 (WHOSE WISDOM?)
+# Week 7 — Day 4 (WHOSE WISDOM?)
 
-## The Cap and the Crowbar
+## What Is Wisdom?
 
-> *Whoever believes in Me, as the Scripture has said, streams of living water will flow from within him*  
-> — **John 7:38**
+> *Hear this, you foolish and senseless people, who have eyes but do not see, who have ears but do not hear*  
+> — **Jeremiah 5:21**
 
-Satan tells you that you aren’t going to amount to anything: “You aren’t going to be anything…you can’t do anything…you will always be what you now are.” Jesus comes to undo that. He says, “You can be anything you think.” Jesus rips the top right off your capped well. He says, “Go ahead, gush forth.” Thus, a tremendous struggle between two destroyers goes on within us, one destroyer uses a cap, the other a crowbar. Every time
-the one with the crowbar yanks the top off, the other guy runs around with the cap. The minute we give him a chance, he covers us up again. The struggle is continual. Each day we experience the tension.
-
----
-
-Jesus says, “You are saved.” Satan says, “You aren’t saved.” Jesus says, “You are healed.” Satan says, “But you still feel the pain.” Jesus says, “You are free from drugs.” Satan says, “You are hooked
-for life.”. Jesus came to reverse what the devil has done. The devil came to destroy our potential. He distorts, retards, short-circuits and caps off that which God has placed within us. He uses sin to clog up our
-potential capacity.
+In First Corinthians, Paul scoffs: “Where are you, those who think you are wise? Is not your wisdom just so much foolishness?” Attacking the supposed wisdom of the world, the apostle declares that it is foolishness. God, in His wisdom, has made the wisdom of the world to be just so much folly (see 1 Corinthians 1:20).
 
 ---
 
-> — *Jesus came to reverse what the devil has done.*
+God considers foolishness any wisdom that does not fulfill its original purpose. So if you are wise and you can really figure things out, but you use it to steal, God says, “You are foolish.” If you are a very skillful musician, but you use it to create lewdness and sensuality, and to cause people to go into perversion, then God calls that foolishness. If you know that the power you have to believe was given to you by God, but you prefer to believe there is no God, God
+calls you a fool. For when you use the belief God has given to you to say you don’t believe in Him, your wisdom becomes foolishness. The fool says in his heart, “There is no God.” He takes the ability God gave him to believe and uses that belief power to not believe in God. God says, “That’s foolishness!”
+
+---
+
+> — *God considers foolishness any wisdom that does not fulfill its original purpose.*
 
 
