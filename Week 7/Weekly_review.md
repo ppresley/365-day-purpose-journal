@@ -1,8 +1,8 @@
-# Week 6 — Review (WHOSE WISDOM?)
+# Week 7 — Review (WHOSE WISDOM?)
 
 ## REVIEW the principles from this week:
 
-- There is an abundance of life within us.
-- Sin clogs our potential.
-- Jesus came to bring us abundant, refreshing new life.
-- We are responsible to the potential stored within us.
+- The potential of everything is related to its purpose for being.
+- The wisdom of the world is a foolish, corrupt wisdom.
+- For those who believe, Jesus Christ is both the power and the wisdom of God.
+- God has given you a wisdom that He placed in you before you were born.

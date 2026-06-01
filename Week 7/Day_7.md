@@ -1,27 +1,23 @@
-# Week 6 — Day 7 (WHOSE WISDOM?)
+# Week 7 — Day 7 (WHOSE WISDOM?)
 
-## Get Out the Clog
+## Born With Wisdom
 
-> *His master replied, “Well done, good and faithful servant! You have been faithful with a few things; I will put you in charge of many things. Come and share your master’s happiness!”*  
-> — **Matthew 25:21**
+> *“…No eye has seen, no ear has heard, no mind has conceived what God has prepared for those who love Him”—but God has revealed it to us by His Spirit*  
+> — **1 Corinthians 2:9-10a**
 
-The Bible tells a story about talents and potential. The talents in the story are symbols of the vast store of abilities our Creator has planted within us. In the story, the master of the estate entrusts some
-of his wealth to three of his servants. The first man invests his talent and doubles the wealth the master had entrusted to his care. The second servant also doubles what the master had given him. With them
-the master is very pleased. Finally the master turns to the third servant and asks, “What have you done with your talent?”
-
-The servant answered, “I was afraid to misuse the talent, so I carefully hid it. Here it is. I am giving it back to you in the same condition that I received it.”
-
-In fury the master rebuked his servant, “You wicked and lazy servant. How dare you not use the gifts I gave to you?”
-
-The master then said, “Take my money from him and throw this useless fellow into the street.”
+You were born with wisdom that literally came out of God. I know you may find that hard to accept, perhaps you think I am a mad man. But the truth is you’ll be shocked when you understand who you really are. You don’t know what you have inside that you are selling so cheaply. You have God’s secret wisdom, a wisdom that you should be using to discover the earth.
 
 ---
 
-We are responsible for the potential stored within us. We must learn to understand it and effectively use it. Too often our successes prevent us from seeking that which yet lies within us. Success becomes our enemy as we settle for what we have. Refuse to be satisfied with your last accomplishment, because potential never has a retirement plan. Do not let what you _cannot_ do interfere with what you _can_ do. In essence, what you see is not all there is.
+None of the rulers of this world understand it, nor have they ever understood it. If only we could understand who we are (and I guess I include Christians, because we used to be there, and we need to find out where we used to be). We keep thinking that the life we left behind is better than the life toward which we are headed. We are constantly dipping into the ways and wisdom of the world to try and solve our present situations. But the world does not know the wisdom and potential God has already destined for us. They don’t understand it, because if they had understood it they would not have crucified the Lord Jesus!
 
 ---
 
-> — *We are responsible for the potential stored within us.*
+Your eyes can’t see, your ears can’t hear, neither can your mind imagine what God intends for His children. It’s totally beyond what you can understand. If you could see through your eyes what you were created to be, you’d change your life. If you could hear through your ears or perceive through your mind—but the Scriptures say you can’t. Your situation sounds hopeless: No eyes have seen it…no ears have heard it…no mind has conceived it. Your eyes and ears and mind cannot help you understand what God prepared for you before you were born. If they could, you’d shape up!
+
+---
+
+> — *You have God’s secret wisdom, a wisdom that you should be using to discover the truth.*
 
 
 
