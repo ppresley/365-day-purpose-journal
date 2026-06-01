@@ -1,4 +1,4 @@
-# Week 6 — Day 7
+# Week 6 — Day 7 (THE REAL YOU CAN BE FOUND)
 
 ## Get Out the Clog
 

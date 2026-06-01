@@ -1,4 +1,4 @@
-# Week 6 — Day 2
+# Week 6 — Day 2 (THE REAL YOU CAN BE FOUND)
 
 ## Uncapping the Well
 

@@ -1,4 +1,4 @@
-# Week 6 — Day 1
+# Week 6 — Day 1 (THE REAL YOU CAN BE FOUND)
 
 ## Fountains of Life
 

@@ -1,4 +1,4 @@
-# Week 6 — Review
+# Week 6 — Review (THE REAL YOU CAN BE FOUND)
 
 ## REVIEW the principles from this week:
 

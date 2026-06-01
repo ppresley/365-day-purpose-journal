@@ -1,4 +1,4 @@
-# Week 6 — Day 6
+# Week 6 — Day 6 (THE REAL YOU CAN BE FOUND)
 
 ## The Clog In Our Potential
 
