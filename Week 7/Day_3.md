@@ -1,22 +1,22 @@
-# Week 6 — Day 3 (WHOSE WISDOM?)
+# Week 7 — Day 3 (WHOSE WISDOM?)
 
-## Destruction Destroyed
+## The Wisdom of the World
 
-> *[Christ] who gave himself for our sins to rescue us from the present evil age, according to the will of our God and Father*  
-> — **Galatians 1:4**
+> *Your heart became proud on account of your beauty, and you corrupted your wisdom because of your splendor. So I threw you to the earth; I made a spectacle of you before kings*  
+> — **Ezekiel 28:17**
 
-Scientists in the field of human potential have estimated that we use as little as ten percent of our abilities. Ninety percent of our capacities lie dormant and wasted. It is sad that we use only a small part of our abilities and talents. Most of us have no idea how much talent and potential we possess.
-The work of the devil is to kill and steal and destroy, he delights up capping off our potential. But 1 John 3:8b says, 
-
-_The reason the Son of God appeared was to destroy the devil’s work._
+Did you know that satan still has wisdom? Ezekiel 28:17 tells us that satan’s wisdom became corrupted. God could not take back what He had given, so satan is still wise. But his wisdom is corrupt.
 
 ---
 
-What does it mean to destroy the works of the devil? How does Jesus do His job? Jesus reverses what satan has done. Whatever Jesus undoes, satan did. Whatever works Jesus does, satan undid it first.
-
-For example, when Jesus took sickness from a person’s body, He undid the works of the devil. Thus the work of the devil was to put the sickness into that body. When Jesus took away our sins, He destroyed the devil’s work of convincing us to sin. If Jesus fed hungry people, then it must mean that satan brings poverty and hunger. If Jesus opened the eyes of the blind, then satan must close them. Jesus came to destroy the works of the devil. Whatever He did destroyed satan’s previous works. Thus when Jesus says, “Everything is possible if you’ll just believe” (see Mark 9:23), He is reversing the lies satan has fed us. Jesus came to destroy satan’s
-destruction.
+Before the fall, lucifer’s responsibility in Heaven was to be the music and worship leader. He was designed with the potential not only to lead in music and worship, but also to produce it. Lucifer’s body was made with pipes in it so that every time he lifted a wing, a sound came out music. He never taught an orchestra because the orchestra arrived when he did. As soon as he started fanning his wings, the angels started singing. This guy was a beautiful angel. He
+had the potential to lead all Heaven, that other world out there, into worship and music. But that wisdom became corrupted. It was not taken from him, it just got corrupted. God is the Creator, but satan is the perverter. God creates everything; satan creates nothing. But
+everything God creates, satan perverts.
 
 ---
 
-> — *Jesus came to destroy satan’s destruction.*
+That’s why music is such an important part of our world today. The guy who is running the spirit of the world is a cheap musician. The amounts of money the devil uses to support the music ministry of the world is amazing. Michael Jackson alone made $220 million in one year. Whitney Houston made $84 million, in just one year. And the Church can’t raise even one million. Although that may sound strange, it is possible because the cheap musician who fell is the one who is backing the music industry. He is manipulating that stuff. He knows just what to do. But God still has the final word, and I like what He has done. God has put music into the Church and into us. He now calls for praise from man. But the point is, satan’s potential is related to his purpose.
+
+---
+
+> — *God is the Creator, but satan is the perverter.*
