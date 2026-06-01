@@ -1,4 +1,4 @@
-# Week 5 — Day 2
+# Week 5 — Day 2 (WHAT HAPPENED TO THE REAL YOU?)
 
 ## Do You Want To Be Like God?
 
