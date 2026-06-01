@@ -1,4 +1,4 @@
-# Week 4 — Day 6
+# Week 4 — Day 6 (THIS IS WHO YOU ARE)
 
 ## Who You Really Are
 

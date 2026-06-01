@@ -1,4 +1,4 @@
-# Week 4 — Day 4
+# Week 4 — Day 4 (THIS IS WHO YOU ARE)
 
 ## What Does God See in You?
 

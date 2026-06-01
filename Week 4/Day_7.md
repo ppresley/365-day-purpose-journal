@@ -1,4 +1,4 @@
-# Week 4 — Day 7
+# Week 4 — Day 7 (THIS IS WHO YOU ARE)
 
 ## Don’t Bury Your Talent
 

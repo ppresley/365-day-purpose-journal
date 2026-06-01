@@ -1,4 +1,4 @@
-# Week 4 — Day 1
+# Week 4 — Day 1 (THIS IS WHO YOU ARE)
 
 ## God Pronounces What He Sees
 

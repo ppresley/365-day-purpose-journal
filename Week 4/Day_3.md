@@ -1,4 +1,4 @@
-# Week 4 — Day 3
+# Week 4 — Day 3 (THIS IS WHO YOU ARE)
 
 ## What Others Look At Is Not Important
 

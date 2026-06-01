@@ -1,4 +1,4 @@
-# Week 4 — Day 2
+# Week 4 — Day 2 (THIS IS WHO YOU ARE)
 
 ## Stop Believing What Others Say
 
