@@ -1,15 +1,18 @@
-# Week 6 — Day 5 (WHOSE WISDOM?)
+# Week 7 — Day 5 (WHOSE WISDOM?)
 
-## All Clogged Up
+## The World’s Wisdom Is Perverted
 
-> *…made us alive with Christ even when we were dead in transgressions—it is by grace you have been saved*  
-> — **Ephesians 2:5**
+> *For the wisdom of this world is foolishness in God’s sight. As it is written: “He catches the wise in their craftiness”*  
+> — **1 Corinthians 3:19**
 
-Are there things in your life that have been holding you back from the things you should be doing? Are you a potential leader in your community but you’re full of alcohol and you’re lying in the gutter? Has cocaine stolen your potential to be the top student in your class? Is your brain all messed up so you can’t even think any more? Are you in danger of being kicked out of school though you were an A student before you took the stuff? Have you run off with a dumb guy and gotten pregnant? Do you have to drop out of school and give up your visions of becoming a doctor or a lawyer, a scientist or an agricultural expert? Has sin clogged up your potential? Did you have a business that was going well, with limitless potential, until somebody said to you, “I want you to sell some drugs for me. You’ll make a lot more than you do in this business”? So you became greedy. You went ahead and sold the drugs—only you were caught and now you have a record and your business is destroyed. Sin clogs our potential. It messes up the plan God has for each of our lives.
+Although God calls the wisdom of the world foolishness (see 1Corinthians 1:20-22), it is still wisdom. It’s a perverted wisdom used by the chief of perverters to blind us to its very foolishness. For who could believe God would use a crucifixion to bring salvation to the
+world. That is not the way we expect Him to work. We look for miraculous signs and unusual insights to indicate the presence and working of God. What wisdom would choose a poor carpenter to bring the greatest gift the world has ever known? Surely not the wisdom of the world, which looks to the wealthy and the well-educated.
+
+But for those who believe in Jesus Christ, God’s apparent foolishness is revealed as true wisdom. The wisest of human thoughts appear puny beside this foolishness of God, and the greatest of man’s strengths pales beside Christ’s weakness. What is a stumbling block or pure foolishness for those who don’t believe in Christ, stands for the Christian, as a towering source of truth, strength and hope. _That_ is wisdom.
 
 ---
 
-> — *Sin clogs our potential.*
+> — *God considers foolishness any wisdom that does not fulfill its orignial purpose.*
 
 
 
