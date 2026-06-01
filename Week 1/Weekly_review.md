@@ -1,4 +1,4 @@
-# Week 1 — Review
+# Week 1 — Review (EVERYTHING IN LIFE HAS POTENTIAL)
 
 ## REVIEW the principles from this week:
 

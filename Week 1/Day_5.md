@@ -1,4 +1,4 @@
-# Week 1 — Day 5
+# Week 1 — Day 5 (EVERYTHING IN LIFE HAS POTENTIAL)
 
 ## Don’t Die With My Things
 

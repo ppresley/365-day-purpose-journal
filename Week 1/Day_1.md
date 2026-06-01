@@ -1,4 +1,4 @@
-# Week 1 — Day 1
+# Week 1 — Day 1 (EVERYTHING IN LIFE HAS POTENTIAL)
 
 ## The Wealthiest Spot on Earth
 

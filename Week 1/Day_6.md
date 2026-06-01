@@ -1,4 +1,4 @@
-# Week 1 — Day 6
+# Week 1 — Day 6 (EVERYTHING IN LIFE HAS POTENTIAL)
 
 ## Complete Your Race
 

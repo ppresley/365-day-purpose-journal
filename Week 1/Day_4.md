@@ -1,4 +1,4 @@
-# Week 1 — Day 4
+# Week 1 — Day 4 (EVERYTHING IN LIFE HAS POTENTIAL)
 
 ## Don’t Settle for What You Have
 

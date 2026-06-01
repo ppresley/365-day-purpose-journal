@@ -1,4 +1,4 @@
-# Week 1 — Day 3
+# Week 1 — Day 3 (EVERYTHING IN LIFE HAS POTENTIAL)
 
 ## The Potential Principle
 

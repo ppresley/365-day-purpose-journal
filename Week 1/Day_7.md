@@ -1,4 +1,4 @@
-# Week 1 — Day 7
+# Week 1 — Day 7 (EVERYTHING IN LIFE HAS POTENTIAL)
 
 ## What’s in Your Package?
 
