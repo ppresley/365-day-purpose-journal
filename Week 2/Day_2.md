@@ -1,4 +1,4 @@
-# Week 2 — Day 2
+# Week 2 — Day 2 (THE SOURCE OF ALL POTENTIAL)
 
 ## Everything Comes From God
 

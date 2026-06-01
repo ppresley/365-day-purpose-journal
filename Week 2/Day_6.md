@@ -1,4 +1,4 @@
-# Week 2 — Day 6
+# Week 2 — Day 6 (THE SOURCE OF ALL POTENTIAL)
 
 ## God’s Imagination at Work
 

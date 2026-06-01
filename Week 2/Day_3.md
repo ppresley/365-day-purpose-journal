@@ -1,4 +1,4 @@
-# Week 2 — Day 3
+# Week 2 — Day 3 (THE SOURCE OF ALL POTENTIAL)
 
 ## In God Was the Beginning
 

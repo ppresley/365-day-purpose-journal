@@ -1,4 +1,4 @@
-# Week 2 — Day 5
+# Week 2 — Day 5 (THE SOURCE OF ALL POTENTIAL)
 
 ## SPOKE Was Hard Work
 

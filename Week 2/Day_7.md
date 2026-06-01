@@ -1,4 +1,4 @@
-# Week 2 — Day 7
+# Week 2 — Day 7 (THE SOURCE OF ALL POTENTIAL)
 
 ## The Work of Creation Is Not Yet Complete
 

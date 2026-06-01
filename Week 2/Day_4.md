@@ -1,4 +1,4 @@
-# Week 2 — Day 4
+# Week 2 — Day 4 (THE SOURCE OF ALL POTENTIAL)
 
 ## The Invisible Became Visible
 

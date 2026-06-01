@@ -1,4 +1,4 @@
-# Week 2 — Review
+# Week 2 — Review (THE SOURCE OF ALL POTENTIAL)
 
 ## REVIEW the principles from this week:
 

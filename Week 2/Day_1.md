@@ -1,4 +1,4 @@
-# Week 2 — Day 1
+# Week 2 — Day 1 (THE SOURCE OF ALL POTENTIAL)
 
 ## Junk or Jewel
 
