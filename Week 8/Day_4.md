@@ -1,19 +1,21 @@
-# Week 7 — Day 4 (WHOSE WISDOM?)
+# Week 8 — Day 4 (CONNECTING WITH GOD’S WISDOM)
 
-## What Is Wisdom?
+## The Knowledge to Bring Change
 
 > *Hear this, you foolish and senseless people, who have eyes but do not see, who have ears but do not hear*  
 > — **Jeremiah 5:21**
 
-In First Corinthians, Paul scoffs: “Where are you, those who think you are wise? Is not your wisdom just so much foolishness?” Attacking the supposed wisdom of the world, the apostle declares that it is foolishness. God, in His wisdom, has made the wisdom of the world to be just so much folly (see 1 Corinthians 1:20).
+If your spirit doesn’t know any more about you than what it has learned since you got saved, look at how little it knows. Just look at you. Do you know where you would be if you had not been saved?
+
+Now don’t get me wrong. You aren’t perfect yet. Don’t get carried away. You know there is still much that needs to be worked on many things that need to be refined. But do you know what happens? The more we know about who we are, the more our attitude toward ourselves changes. Isn’t that something? The minute we realize who we are we say, “Wait a minute now. I’m the King’s kid,” and we begin to put on kingly clothes. We think, “I’m a child of God now,” so we
+start changing our language. We think, “Gosh, man. I’m a prosperous person,” and we start expecting things to happen in our lives. 
 
 ---
 
-God considers foolishness any wisdom that does not fulfill its original purpose. So if you are wise and you can really figure things out, but you use it to steal, God says, “You are foolish.” If you are a very skillful musician, but you use it to create lewdness and sensuality, and to cause people to go into perversion, then God calls that foolishness. If you know that the power you have to believe was given to you by God, but you prefer to believe there is no God, God
-calls you a fool. For when you use the belief God has given to you to say you don’t believe in Him, your wisdom becomes foolishness. The fool says in his heart, “There is no God.” He takes the ability God gave him to believe and uses that belief power to not believe in God. God says, “That’s foolishness!”
+As our knowledge about who we are grows, our lives change. All this is possible because the Holy Spirit goes to the cap on the well of the wealth of our potential and pries it off. He comes into our lives and goes straight for the things that are clogging us up and dragging us down. Through the power of God, He pulls off that cap and starts to drill.
 
 ---
 
-> — *God considers foolishness any wisdom that does not fulfill its original purpose.*
+> — *As our knowledge about who we are grows, our lives change.*
 
 
