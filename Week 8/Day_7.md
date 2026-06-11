@@ -1,23 +1,29 @@
-# Week 7 — Day 7 (WHOSE WISDOM?)
+# Week 8 — Day 7 (CONNECTING WITH GOD’S WISDOM)
 
-## Born With Wisdom
+## God’s Got It All
 
-> *“…No eye has seen, no ear has heard, no mind has conceived what God has prepared for those who love Him”—but God has revealed it to us by His Spirit*  
-> — **1 Corinthians 2:9-10a**
+> *Those who live according to the sinful nature have their minds set on what that nature desires; but those who live in accordance with the Spirit have their minds set on what the Spirit desires*  
+> — **Romans 8:5**
 
-You were born with wisdom that literally came out of God. I know you may find that hard to accept, perhaps you think I am a mad man. But the truth is you’ll be shocked when you understand who you really are. You don’t know what you have inside that you are selling so cheaply. You have God’s secret wisdom, a wisdom that you should be using to discover the earth.
+You’ll never be fulfilled without God, because you are looking for what God has.
 
----
-
-None of the rulers of this world understand it, nor have they ever understood it. If only we could understand who we are (and I guess I include Christians, because we used to be there, and we need to find out where we used to be). We keep thinking that the life we left behind is better than the life toward which we are headed. We are constantly dipping into the ways and wisdom of the world to try and solve our present situations. But the world does not know the wisdom and potential God has already destined for us. They don’t understand it, because if they had understood it they would not have crucified the Lord Jesus!
+For this reason, God gives you the Holy Spirit. The only way to get out of God and into you the deep things God knows about you is through His Spirit communing with yours. The Holy Spirit searches the deep things of God—the deep things about you that you lack. God prepared and predestined those things for you before you were created. He had them in Himself and gave them to you at birth. But you don’t know those things exist, because sin has capped the well and blocked the way. Only God, through the Holy Spirit, can reveal them again.
 
 ---
 
-Your eyes can’t see, your ears can’t hear, neither can your mind imagine what God intends for His children. It’s totally beyond what you can understand. If you could see through your eyes what you were created to be, you’d change your life. If you could hear through your ears or perceive through your mind—but the Scriptures say you can’t. Your situation sounds hopeless: No eyes have seen it…no ears have heard it…no mind has conceived it. Your eyes and ears and mind cannot help you understand what God prepared for you before you were born. If they could, you’d shape up!
+Your potential is buried in God. We think going to the moon is great, we should see what God had planned that we didn’t follow. Our eyes will never see the stuff God prepared for us, nor will our ears hear it. Only the Holy Spirit can reveal to us the deep things of God that tell us who we are.
+
+Through the gift of the Holy Spirit, you can reestablish your relationship with God. The Holy Spirit, connected with your spirit, unravels the knots that have bound your thoughts, removes the streaks that have blurred your vision and clears the debris that has hidden your potential. Working like a sculptor, He brings out the beauty hidden deep within your being, because that is the real you.
 
 ---
 
-> — *You have God’s secret wisdom, a wisdom that you should be using to discover the truth.*
+Allow God to reveal His secret wisdom concerning you. See with your eyes and hear with your ears things you have never seen or heard before. Conceive with your mind thoughts that never before
+have occurred to you. Cooperate with the Holy Spirit as He sucks out of God and into you the depths of the riches that God prepared for you. Live the rest of your life building an atmosphere where it is possible for the Holy Spirit to use you as He takes His bucket of hope,
+dips it deep into the wells of your potential and pulls it to the top of your senses. Drink deeply, growing in the knowledge of who you really are in God. That’s my dream.
+
+---
+
+> — *You’ll never be fulfilled without God, be cause you are looking for what God has.*
 
 
 

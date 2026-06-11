@@ -1,8 +1,8 @@
-# Week 7 — Review (WHOSE WISDOM?)
+# Week 8 — Review (CONNECTING WITH GOD’S WISDOM)
 
 ## REVIEW the principles from this week:
 
-- The potential of everything is related to its purpose for being.
-- The wisdom of the world is a foolish, corrupt wisdom.
-- For those who believe, Jesus Christ is both the power and the wisdom of God.
-- God has given you a wisdom that He placed in you before you were born.
+- You are in God’s class.
+- You will never know who you are supposed to be until you accept Jesus as your Savior and
+receive the gift of God’s Spirit.
+- The Spirit helps us find understanding and wisdom.
