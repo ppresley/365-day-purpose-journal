@@ -1,21 +1,20 @@
-# Week 7 — Day 2 (WHOSE WISDOM?)
+# Week 8 — Day 2 (CONNECTING WITH GOD’S WISDOM)
 
-## Our Main Goal
+## The Holy Spirit Connection
 
-> *Who endowed the heart with wisdom or gave understanding to the mind?*  
-> — **Job 38:36**
+> *But you will receive power when the Holy Spirit comes on you; and you will be My witnesses in Jerusalem, and in all Judea and Samaria, and to the ends of the earth*  
+> — **Acts 1:8**
 
-The potential of everything is related to its purpose for being. Before we can understand the potential of a thing or person, we first must know the conditions under which it was meant to exist. Thus the most important thing for you and me, as human beings, is to try and find out for the rest of our lives what is the purpose for everything in life. That is our main goal. Unless we ask ourselves, “What is the purpose for everything in life?” we will die without having
-experienced the potential of everything. We will miss the wisdom of God in creation.
-
----
-
-The apostle Paul, in the first chapter of First Corinthians, describes the wisdom of the world and the wisdom of God.
-
-_Where is the wise man? Where is the scholar? Where is the philosopher of this age? has not God made foolish the wisdom of the world? For since in the wisdom of God the world through its wisdom did not know Him, God was pleased through the foolishness of what was preached to save those who believe. Jews demand miraculous signs and Greeks look for wisdom, but we preach Christ crucified: a stumbling block to Jews and foolishness to Gentiles_ (1 Corinthians 1:20-23).
-
-When somebody tells you they are wise, don’t get carried away. Although they may have wisdom, it might not be the right kind of wisdom.
+When you were born, the cap over your potential was firmly in place. Outside God’s grace you will never know what is buried beneath that cap. Billions of dollars of wealth are buried within you, but you are not aware of it. You’re walking along cool, but you don’t know who you are. You don’t understand that what you see is merely the shadow of your potential.
 
 ---
 
-> — *The most important thing is to try and find out what is the purpose for everything in life.*
+In His mercy, God has placed within each of us the answer to this dilemma. After the resurrection of Jesus Christ, God sent the gift of the Holy Spirit. That same Spirit, which we receive at our new birth, provides the connection between our spirits and God’s secret wisdom.
+
+---
+
+Your capped potential is like a new battery. You came into the world full of the ability to run the whole thing. But you’re just sitting there. Your stored power isn’t being used. Like a battery that needs acidic water inside it before it can really fulfill its purpose, you need something to unleash the potential locked inside you. The Holy Spirit is the key that allows all the dormant power within you to come to life. Without the filling of the Holy Spirit, you can never function to your fullest potential.
+
+---
+
+> — *The Holy Spirit is the key that allows all the dormant power within you to come to life.*
