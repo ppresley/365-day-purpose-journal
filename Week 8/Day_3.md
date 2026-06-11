@@ -1,22 +1,25 @@
-# Week 7 — Day 3 (WHOSE WISDOM?)
+# Week 8 — Day 3 (CONNECTING WITH GOD’S WISDOM)
 
-## The Wisdom of the World
+## The Holy Spirit Is the Key to Power
 
-> *Your heart became proud on account of your beauty, and you corrupted your wisdom because of your splendor. So I threw you to the earth; I made a spectacle of you before kings*  
-> — **Ezekiel 28:17**
+> *For who among men knows the thoughts of a man except the man’s spirit within him? In the same way no one knows the thoughts of God except the Spirit of God*  
+> — **1 Corinthians 2:11**
 
-Did you know that satan still has wisdom? Ezekiel 28:17 tells us that satan’s wisdom became corrupted. God could not take back what He had given, so satan is still wise. But his wisdom is corrupt.
+The Holy Spirit is the key that allows all the dormant power
+within you to come to life.
 
----
-
-Before the fall, lucifer’s responsibility in Heaven was to be the music and worship leader. He was designed with the potential not only to lead in music and worship, but also to produce it. Lucifer’s body was made with pipes in it so that every time he lifted a wing, a sound came out music. He never taught an orchestra because the orchestra arrived when he did. As soon as he started fanning his wings, the angels started singing. This guy was a beautiful angel. He
-had the potential to lead all Heaven, that other world out there, into worship and music. But that wisdom became corrupted. It was not taken from him, it just got corrupted. God is the Creator, but satan is the perverter. God creates everything; satan creates nothing. But
-everything God creates, satan perverts.
+Have you ever wondered why we have to be born of the Spirit? Why does the Holy Spirit come and connect with our spirits? Think for a moment about your spirit. The deepest knowledge about ourselves comes to us through our spirits, we can’t know anything deeper than our spirits reveal. No one knows more about you than you know about yourself; for who can understand a man better than his own spirit (see 1 Corinthians 2:11)?
 
 ---
 
-That’s why music is such an important part of our world today. The guy who is running the spirit of the world is a cheap musician. The amounts of money the devil uses to support the music ministry of the world is amazing. Michael Jackson alone made $220 million in one year. Whitney Houston made $84 million, in just one year. And the Church can’t raise even one million. Although that may sound strange, it is possible because the cheap musician who fell is the one who is backing the music industry. He is manipulating that stuff. He knows just what to do. But God still has the final word, and I like what He has done. God has put music into the Church and into us. He now calls for praise from man. But the point is, satan’s potential is related to his purpose.
+If you just got saved, your spirit doesn’t know anything about you. Before your new birth in Christ, you were spiritually dead. Your spirit has been paralyzed for 15, 20, or 30 years (however long it took you to get saved). You have been dumb and ignorant about who you really are, because you can’t truly know yourself until you become spiritually alive.
 
 ---
 
-> — *God is the Creator, but satan is the perverter.*
+If you are not a Christian, you don’t even know who you are. Only the spirit of a man knows the real thoughts of what a man is supposed to be, and we are born spiritually dead. We will never know who we are supposed to be until we accept Jesus as our Savior and receive God’s gift of His Spirit.
+
+If then, your spirit doesn’t know any more about you than what it has learned since you got saved, look at how little it knows. Just look at you. Do you know where you would be if you had not been saved?
+
+---
+
+> — *We can’t know anything deeper than our spirits reveal.*
