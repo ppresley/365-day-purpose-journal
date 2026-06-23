@@ -1,4 +1,4 @@
-# Week 9 — Day 1 (WHY WERE YOU BORN?)
+# Week 9 — Day 2 (WHY WERE YOU BORN?)
 
 ## God Designed You To Be a Success Story
 
