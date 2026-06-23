@@ -1,25 +1,23 @@
 # Week 9 — Day 3 (WHY WERE YOU BORN?)
 
-## The Holy Spirit Is the Key to Power
+## God Has a Book on You
 
-> *For who among men knows the thoughts of a man except the man’s spirit within him? In the same way no one knows the thoughts of God except the Spirit of God*  
-> — **1 Corinthians 2:11**
+> *Before a word is on my tongue you know it completely, O Lord*  
+> — **Psalm 139:4**
 
-The Holy Spirit is the key that allows all the dormant power
-within you to come to life.
-
-Have you ever wondered why we have to be born of the Spirit? Why does the Holy Spirit come and connect with our spirits? Think for a moment about your spirit. The deepest knowledge about ourselves comes to us through our spirits, we can’t know anything deeper than our spirits reveal. No one knows more about you than you know about yourself; for who can understand a man better than his own spirit (see 1 Corinthians 2:11)?
+God designed you to be somebody. He looked at your unformed body and declared, “This child is good.” All His plans for your life were set out long before you took a breath. He wrote out the order of your days before you lived even one day (see Psalm 139:16). There’s a book on you. Some chapters God wrote about you haven’t
+even been touched yet.
 
 ---
 
-If you just got saved, your spirit doesn’t know anything about you. Before your new birth in Christ, you were spiritually dead. Your spirit has been paralyzed for 15, 20, or 30 years (however long it took you to get saved). You have been dumb and ignorant about who you really are, because you can’t truly know yourself until you become spiritually alive.
+Some of you are playing around in the index or you have spent years in the table of contents. Perhaps you are 30 years old and you still don’t know God’s plan for your life. That’s playing around on the contents page. You are 30 years old and still wondering what you are supposed to be. You haven’t even started yet.
 
 ---
 
-If you are not a Christian, you don’t even know who you are. Only the spirit of a man knows the real thoughts of what a man is supposed to be, and we are born spiritually dead. We will never know who we are supposed to be until we accept Jesus as our Savior and receive God’s gift of His Spirit.
+Others have jumped ahead of God’s plan. Though His design calls for you to be married in chapter 17, you got married in chapter 2. You have ignored the things God wanted you to learn and experience in chapters 2 through 16 so you would be prepared for marriage in chapter 17. You have missed out on many experiences and discoveries because you moved ahead of God’s schedule.
 
-If then, your spirit doesn’t know any more about you than what it has learned since you got saved, look at how little it knows. Just look at you. Do you know where you would be if you had not been saved?
+Some people are so busy peeking into chapter 17 they don’t have time to live chapters 2 and 3 and 4…. Or perhaps you have pulled chapter 17 into chapter 2 so that the rest of the book is destroyed. You will never have the opportunity to experience all the chapters if you pull parts of later chapters into the early ones.
 
 ---
 
-> — *We can’t know anything deeper than our spirits reveal.*
+> — *God designed you to be somebody.*
