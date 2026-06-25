@@ -1,21 +1,25 @@
 # Week 9 — Day 4 (WHY WERE YOU BORN?)
 
-## The Knowledge to Bring Change
+## God Offers You a Rewrite
 
-> *Hear this, you foolish and senseless people, who have eyes but do not see, who have ears but do not hear*  
-> — **Jeremiah 5:21**
+> *You hem me in—behind and before; you have laid your hand upon me*  
+> — **Psalm 139:5**
 
-If your spirit doesn’t know any more about you than what it has learned since you got saved, look at how little it knows. Just look at you. Do you know where you would be if you had not been saved?
-
-Now don’t get me wrong. You aren’t perfect yet. Don’t get carried away. You know there is still much that needs to be worked on many things that need to be refined. But do you know what happens? The more we know about who we are, the more our attitude toward ourselves changes. Isn’t that something? The minute we realize who we are we say, “Wait a minute now. I’m the King’s kid,” and we begin to put on kingly clothes. We think, “I’m a child of God now,” so we
-start changing our language. We think, “Gosh, man. I’m a prosperous person,” and we start expecting things to happen in our lives. 
+God wants to take you back to the beginning, because His plans far outreach your plans. His design for your life is so great that King David describes it as vast (see Psalm 139:17). You are thinking about being a teacher while God wants you to open a school. You have plans to be a clerk while God wants you to own the store. You want to work in a neighboring town while God wants you to go to Africa. You often cheat yourself because you don’t realize the potential you
+have. Why settle to be a doorman when God wants you to own the house? David says it this way: “God, when I look at your thoughts in the book on me, it’s like all the sands in the ocean. Your thoughts are endless. I can’t fathom your confidence in me.”
 
 ---
 
-As our knowledge about who we are grows, our lives change. All this is possible because the Holy Spirit goes to the cap on the well of the wealth of our potential and pries it off. He comes into our lives and goes straight for the things that are clogging us up and dragging us down. Through the power of God, He pulls off that cap and starts to drill.
+God designed you to live out the careful plans He prepared for you. You are made in God’s image. The plan He wrote for you is perfect and right. No detail or part is missing. You have the potential to live out all that God has planned for your life—but only if you accept Jesus Christ as your Savior and Lord. That’s the first step toward understanding why you were born.
 
 ---
 
-> — *As our knowledge about who we are grows, our lives change.*
+Though you’ve messed up God’s perfect plan for your life, He graciously offers to write another book for you. It probably won’t be the best-seller the first book was designed to be, but at least God gives you the chance to start over. He comes and puts you back in chapter one so you can live the many details of His plan. That’s what being born again is all about. It’s the opportunity to start over, it’s finally getting back to the first chapter of God’s book on you. God has great plans for you—that’s why He gave you life. Self-acceptance is the key to healthy self-esteem. 
+
+Accept yourself as God made you. Allow His power to transform your weakness, rather than belittling yourself when you make mistakes.
+
+---
+
+> — *God has great plans for you that’s why He gave you life.*
 
 
