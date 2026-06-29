@@ -1,29 +1,26 @@
 # Week 9 — Day 7 (WHY WERE YOU BORN?)
 
-## God’s Got It All
+## From Thought to Action
 
-> *Those who live according to the sinful nature have their minds set on what that nature desires; but those who live in accordance with the Spirit have their minds set on what the Spirit desires*  
-> — **Romans 8:5**
+> *He replied, “…I tell you the truth, if you have faith as small as a mustard seed, you can say to this mountain, ‘Move from here to there’ and it will move. Nothing will be impossible for you”*  
+> — **Matthew 17:20**
 
-You’ll never be fulfilled without God, because you are looking for what God has.
-
-For this reason, God gives you the Holy Spirit. The only way to get out of God and into you the deep things God knows about you is through His Spirit communing with yours. The Holy Spirit searches the deep things of God—the deep things about you that you lack. God prepared and predestined those things for you before you were created. He had them in Himself and gave them to you at birth. But you don’t know those things exist, because sin has capped the well and blocked the way. Only God, through the Holy Spirit, can reveal them again.
+A _thought_ is a silent word, so a word is an exposed thought. Everything in life starts in the thought form—it’s a thought first. After it’s said, it is no longer a thought. It becomes a word. The next step is an _idea_. An idea is the concept of the thought-it has moved into a reality. Ideas are potentials.
 
 ---
 
-Your potential is buried in God. We think going to the moon is great, we should see what God had planned that we didn’t follow. Our eyes will never see the stuff God prepared for us, nor will our ears hear it. Only the Holy Spirit can reveal to us the deep things of God that tell us who we are.
-
-Through the gift of the Holy Spirit, you can reestablish your relationship with God. The Holy Spirit, connected with your spirit, unravels the knots that have bound your thoughts, removes the streaks that have blurred your vision and clears the debris that has hidden your potential. Working like a sculptor, He brings out the beauty hidden deep within your being, because that is the real you.
+The third level of operation is what I call _imagination_. Imagination changes an idea into a plan. If you have an idea it can come and go. You have many ideas in a day—what to cook, what to wear, what to do. You may decide the night before what you are going to wear in the morning and then wake up with a different idea. Ideas change. But if an idea develops into an imagination, it means the idea has become a plan. It is still not written or drawn, but it is in your head. Imagination is therefore a plan that is not documented. It is a visual display of your thoughts and ideas. Ephesians 3:20 challenges us to believe God is able and willing to do _“exceeding abundantly far beyond all we can think or imagine.”_ He dares us to use our imaginations.
 
 ---
 
-Allow God to reveal His secret wisdom concerning you. See with your eyes and hear with your ears things you have never seen or heard before. Conceive with your mind thoughts that never before
-have occurred to you. Cooperate with the Holy Spirit as He sucks out of God and into you the depths of the riches that God prepared for you. Live the rest of your life building an atmosphere where it is possible for the Holy Spirit to use you as He takes His bucket of hope,
-dips it deep into the wells of your potential and pulls it to the top of your senses. Drink deeply, growing in the knowledge of who you really are in God. That’s my dream.
+If you want to be successful in life, take your ideas and turn them into imagination; then take imagination and duplicate it physically. Put it down. Let it become a plan of action.
+
+Many people never get beyond the idea stage. That’s sad. They are usually followers. The people who get to the imagination stage often talk a lot but they do nothing. They are dreamers. But when a man or woman takes his imagination and puts it on paper, you are looking at a visionary who is becoming a missionary. Visionaries see
+great things in their minds. Many visionaries are in the graveyard. They had visions, but their visions never made it to mission. When a visionary becomes a missionary, you have a man or woman who is going to change the world.
 
 ---
 
-> — *You’ll never be fulfilled without God, be cause you are looking for what God has.*
+> — *Plans are documented imaginations.*
 
 
 
