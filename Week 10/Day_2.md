@@ -1,22 +1,17 @@
 # Week 10 — Day 2 (WHAT CAN YOU DO?)
 
-## God Designed You To Be a Success Story
+## You Can Do All Things
 
-> *My frame was not hidden from You when I was made in the secret place…* 
-> — **(Psalm 139:15)**
+> *I can do everything through Him who gives me strength* 
+> — **Philippians 4:13**
 
-King David doesn’t describe your mother in Psalm 139—she may have been an old alcoholic or a drug addict, a bastard or a prostitute. He is concerned with _you_. He describes how God knit you together in your mother’s womb without describing what that womb was like. The womb in which you were knit together is no longer important. _You_ are important. Your very existence means God wants you to exist. You are somebody special simply because you were born.
-
----
-
-God saw you in your mother’s womb when you were a tiny baby—a one-centimeter embryo. He looked into the secret place in your mother’s womb and saw you. From the second your father’s sperm and your mother’s egg joined to form a child, God tenderly created you and watched you grow. God never would have allowed the sperm and the egg to come together if He had not planned for you to be born.
-
-Although some parents feel their baby is a mistake, their thoughts are not true. God planned for that baby to be born. The manner in which the child was conceived may not have been in God’s plan, but the child himself is surely part of God’s plan.
+The apostle Paul, when looking back over his years in the Lord’s service, stated that he could do all things through Christ who strengthens him. The Greek terminology for strengthen does not
+mean we are weak and God comes and props us up. Paul’s words literally mean: “Christ who continues to infuse me with ability.” Thus Paul is saying: “I can do all things through the potential of Christ who infuses me with the ability to do all things.” This strength is not a strength that comes once in a while, but a continual ability that is infused into us because we are connected to Christ. Thus our potential is not limited to doing _some_ of the things God asks us to do. We can do _all things_—whatever we believe and desire to do for God. We can do this because the ability to do so is already deposited in us. The basis for this deposit of Christ’s ability goes back to God’s work in creation.
 
 ---
 
-Those of you who were brought up in a nice family with a mother and a father who love you may not understand those who have been put down by their family since the day of their birth. You may not understand how important it is for them to know that they are not mistakes. Be patient with them. Help them to see that God designed them long before they were born! Every child who comes into this world comes as a setup from God. That little boy or girl doesn’t need to arrive to see what is going to happen, because the happening was already set up before he or she came.
+God is the source of all potential because everything that is was in God. He created everything with potential and gave it the ability to fulfill itself. The potential God gave is related to the source from which He took the thing. That means whatever you came out of is an indication of your potential. Thus your potential is as great as God’s potential, because when God wanted you, He spoke to Himself. When He wanted plants and animals, God spoke to the ground. But when He wanted human beings, God spoke to Himself. You came out of God. Thus the limit of your potential is God.
 
 ---
 
-> — *You are here because God wanted you to be born.*
+> — *The people who change the world are people who have take impossible out of their dictionaries.*

@@ -1,28 +1,23 @@
 # Week 10 — Day 6 (WHAT CAN YOU DO?)
 
-## Knock the Limits Off Your Life
+## If You Think It, You Can Do It
 
-> *Jesus looked at them and said, “With man this is impossible, but with God all things are possible”*  
-> — **Matthew 19:26**
+> *There is surely a future hope for you, and your hope will not be cut off*  
+> — **Proverbs 23:18**
 
-The concept of Mark chapter 11 is that if you ask anything—if you can believe what you desire hard enough—God says it will be done. Somehow God gives us a little glimpse into our potential. He comes into our situation as if He’s disturbed. God is disappointed in the human race. It’s almost as though God looks at the ideas He stored in us and says with a voice of disappointment, “If you only knew what you can do.” That’s the attitude of God toward you and me. God is totally disappointed in us because He knows what we can do. But we don’t. And so He says to us: “All things are possible if you’d just believe, dummy.” He’s always knocking the limits off our
-lives.
-
----
-
-Too often we are not willing to believe like God defines believe. God does not say, “Everything is possible if you get the idea.” Things don’t become reality because we have an idea. We have to believe in the idea. We have to believe we can do it by committing ourselves to it—abandoning ourselves to it—even if it costs us our lives. That’s what it takes to believe in the Lord Jesus Christ—to lose our lives…to abandon ourselves. We must say, “I’m going to go into eternity believing in Jesus. I’m not sure what’s out there, but I’m going to ride on that Name and that atonement.”
+You have a deposit of God’s ability! Any person who sets a limit on what he _can_ do, also sets a limit on what he _will_ do. No one can determine how much you can produce except you and God. So there is nothing in this world that should stop you from accomplishing and realizing and fulfilling and maximizing your full potential.
 
 ---
 
-God isn’t impressed by your dreams. Most of us never wake up long enough to do anything with our dreams. You may have great dreams for your life, but you prefer to stay asleep because when you wake up reality says, “OK, let’s get to work.” It’s easier to dream an idea than to work it out. Everything is possible if you will abandon yourself to an idea enough that you are willing to lose your life for it. Thinking is great. But all things are possible when we believe. Jesus said in Mark chapter 11, “Whatever you desire when you pray, believe you’ll receive it, and you will have it.” The word desire is the key. Being interested in or attracted to something is not desiring it. To desire means “to crave for something at the expense of losing everything.”
+Proverbs 23:7 tells us: If you can conceive it, you can do it. Obviously God is trying to communicate that you _can_ do anything you can _think_. If you can conceive it, the fact that you can conceive it means you can do it. It doesn’t matter if it’s never been done—if you think it, you can do it. Likewise, if you never think it, you can’t do it. God allows you to think only what you can do. If He doesn’t allow you to think it, He knows you can’t do it.
 
 ---
 
-God’s work in creation began with a plan. God conceived in His mind what He wanted before speaking His creations into visible form. By the time God was ready to speak, it was just a matter of taking what was in the plan and putting it on the site.
+Think about the things you’ve been thinking recently. The fact that you thought them means you can do them. Now don’t get me wrong. Thinking doesn’t get it done. Thinking implies you can do it. See yourself doing the thing in your thoughts. Make your thought into an idea, and your idea into an imagination. Take that imagination and document it into a plan. Then go to it (of course with the proper rest periods). Put your plan into action. If you thought it, you can do it.
 
 ---
 
-> — *Everything is possible if you abandon yourself to an idea enough that you are willing to lose your life for it.*
+> — *If you can conceive it, you can do it.*
 
 
 

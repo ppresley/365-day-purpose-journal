@@ -1,28 +1,21 @@
 # Week 10 — Day 1 (WHAT CAN YOU DO?)
 
-## God Planned Your Life
+## All Things Are Possible
 
-> *the Lord God formed the man from the dust of the ground and breathed into his nostrils the breath of life, and the man became a living being*  
-> — **Genesis 2:7**
+> *For nothing is impossible with God*  
+> — **Luke 1:37**
 
-If you feel good about yourself, you will feel good about other people. In other words, only after you see yourself as a worthwhile person can you appreciate others as worthwhile people.
-
-Many people do not feel good about themselves. They look at themselves and wonder why God made them; or they doubt that anyone can find any good in them. But remember, God sees what others, and we ourselves, can’t see. God looks at us and sees that we are worth feeling good about. We are special to God. We are valuable and important.
+For about two years now my little cousin has been coming to me when she’s trying to do something and saying, “I can’t do this.” I always respond to her by saying, “There is nothing named ‘can’t’” When she comes back to me and says, “I don’t know how to do it,” I always reply, “There’s always a way to do everything.”
 
 ---
 
-God has a good attitude toward you. He created you in His image and drew you out of Himself. Before you were born, you were in God. Part of His potential has been placed within you.
-
-There could not be a beginning without God, because God got start started. Before start started, however, God had a finished plan for your life. Your potential is not a trial and error experience. God designed and predetermined you to be a success story. 
-
-Psalm 139 tells us that God planned each of your days before you were even born. Before you were formed, God knew you. He took great care in creating you. No part of your being was made without God’s knowledge and careful concern. God wants each of us. He gives us what no other part of His creation received: His breath of life (see Genesis 2:7).
+Several days ago my other cousin and I were out in the yard playing bat and ball. I was throwing the ball to him and he kept on missing with the bat. Finally he became really upset and said, “I can’t do that,” to which I replied, “There’s nothing named ‘can’t.’” Slowly he repeated after me, “There’s nothing named ‘can’t.’” Then I said, “Hold the bat,” and I threw the ball. He hit the ball and then said, “There’s nothing named ‘can’t.’”
 
 ---
 
-Have you ever felt like you were a mistake? Have your parents told you they wished you had never been born? Are you a child whose parents have told you: “I wish you would have died when you were a baby”? 
-
-You may be a bastard, conceived out of wedlock. Being omnipotent, God had the power to prevent your conception. Yet God allowed it because He wanted you to show up. You are here because God wanted you to be born. How you came isn’t important. What matters is that you are here. And if you are here, God created you with care (see Psalm 139:13).
+Several days later when I stopped by home to drop off my cousin, my other cousin came running and wanted to play football. When I said that I had to go back to the office to do some work, he insisted that he wanted to play ball with me then. When I again replied that I had to go to the office, he said, “There’s nothing named ‘can’t.’ ” Do you see the point? If he begins to think that way at four years of age, this world is in for a winner. Too often we fail in our efforts
+because we have been brought up believing that we cannot do some things. The people who change the world are people who have taken impossible out of their dictionaries. The men and women who make changes in history are those who come against the odds and tell the odds that it’s impossible for the odds to stop them.
 
 ---
 
-> — *You are not a mistake.*
+> — *A man cannot discover new oceans unless he has the courage to lose sight of the shore.*

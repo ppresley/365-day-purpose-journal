@@ -2,10 +2,8 @@
 
 ## REVIEW the principles from this week:
 
-- You are worth feeling good about because God wanted you to be born.
-- God has a detailed plan for your life.
-- The first step in living out God’s plan is accepting Jesus Christ as your Savior and Lord.
-- God created you with a part of His potential so you could expose and share in His glory.
-- God’s glory is the excess of His potential—His many plans that wait to be revealed through us.
-- Develop a plan for your life that fulfills some of the possibilities God placed within you before
-  you were born. Then believe and work them into existence.
+- The potential of a thing is related to its source.
+- Your potential is as great as God’s potential, because when God wanted you He spoke to Himself.
+- Potential is determined by the demands made on it by the creator.
+- If you can think it, you can do it.
+- Your potential is everything that is in Christ. So if God has it, you have it.

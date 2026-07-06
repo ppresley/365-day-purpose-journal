@@ -1,24 +1,20 @@
 # Week 10 — Day 5 (WHAT CAN YOU DO?)
 
-## Born to Expose His Nature
+## You Can Do Everything God Asks
 
-> *…the people I formed for myself that they may proclaim my praise*  
-> — **Isaiah 43:21**
+> *…and His incomparably great power for us who believe. That power is like the working of His mighty strength*  
+> — **Ephesians 1:19**
 
-Not only did God carefully plan for the details of your life, He also determined how your life would fit into His total plan for man. Part of the answer to the why of our birth is revealed in God’s desire that we should show forth His glory. The glory of God is the excess of His nature. It’s all the potential of our omnipotent God that has not yet been revealed. He’s full of so much more than we can think or imagine and He’s waiting to use us to realize that potential.
+God is good. He has built into you the potential to produce everything He calls for. When God says, “Love your enemies,” don’t start listing reasons why you can’t. The ability to love is built in…it’s there…no excuses. God wouldn’t ask for it if it wasn’t available. He wired you to produce everything He demands.
 
-_Now to Him who is able to do immeasurably more than all we ask or imagine, according to His power that is at work within us, to Him be glory in the church and in Christ Jesus throughout all generations, for ever and ever! Amen_ (Ephesians 3:20-21).
-
----
-
-Throughout the Bible, God tells us to make His name great in the earth. Praise and thanks are due God’s name, which is great and awesome (see Psalm 44:8; 99:3). His name is to be proclaimed
-among the nations (see Malachi 1:11) as well as in Israel (see Psalm 76:1). His name is holy (see Luke 1:49; Psalm 99:3) and mighty in power (see Jeremiah 10:6). Everything is done for “His name’s sake.” To understand this concept, we must also understand that the Hebrew concept of “name” literally is synonymous with the object. In other words, the name of the thing is the thing. Therefore, the name of God is Himself, and He is His name. To glorify His name,
-then, means exposing His nature.
+God also wired everything else to produce what He demands from it. God looks at a piece of fruit and says, “In you there is a tree. There is a seed in you, and that seed is a tree. It’s there, and I demand what I put in.” So God says, “Plant that seed and a tree has to come out; I put a tree in that seed. Before you were given the fruit, I made the seed with the tree.” That’s the way God thinks. Hallelujah!
 
 ---
 
-God created _you_ to bring glory to His name. His predestined plan for _your_ life was designed to bring Him glory. He knows there is more to you than we can see because He placed part of Himself in you. His plan for your life is part of His creative work—through you God wants to continue the birth of His potential. Because you share God’s omnipotent nature, Jesus said you can do even greater things than He did, if you only believe (see Mark 11:23).
+Whenever God gives you a responsibility, He also gives you the ability to meet that responsibility. In other words, _whatever God calls for, He provides for_. If God tells you to do something, He knows you can do it. So don’t you dare tell God that you can’t. Just because He told you to assume that responsibility means He knows you can do it. The problem isn’t that you can’t, it’s just that you _won’t_.
+
+Whether you use the ability God has deposited within you is totally up to you. How well you assume the responsibilities God gives you is not so much a question of how much you _do_, but rather how much of the available power you use. What you are doing is not near what your ability is. What you have accomplished is a joke when compared with what you could accomplish—you are not working enough with the power of God (emphasis on work).
 
 ---
 
-> — *God created you to bring glory to His name.*
+> — *Whenever God gives you a responsibility, He also gives you the ability to meet that responsibility.*

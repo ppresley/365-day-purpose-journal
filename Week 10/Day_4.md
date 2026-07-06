@@ -1,25 +1,22 @@
 # Week 10 — Day 4 (WHAT CAN YOU DO?)
 
-## God Offers You a Rewrite
+## God’s “Money-Back” Guarantee
 
-> *You hem me in—behind and before; you have laid your hand upon me*  
-> — **Psalm 139:5**
+> *But the Scripture declares that the whole world is a prisoner of sin, so that what was promised, being given through faith in Jesus Christ, might be given to those who believe*  
+> — **Galatians 3:22**
 
-God wants to take you back to the beginning, because His plans far outreach your plans. His design for your life is so great that King David describes it as vast (see Psalm 139:17). You are thinking about being a teacher while God wants you to open a school. You have plans to be a clerk while God wants you to own the store. You want to work in a neighboring town while God wants you to go to Africa. You often cheat yourself because you don’t realize the potential you
-have. Why settle to be a doorman when God wants you to own the house? David says it this way: “God, when I look at your thoughts in the book on me, it’s like all the sands in the ocean. Your thoughts are endless. I can’t fathom your confidence in me.”
+The potential of a thing is determined by the demands placed upon it by the creator. This is the most amazing thing I have ever discovered about potential. The potential of a thing is determined by the demands made on it by the one who made it. A creator will not call forth from his creation something he did not put into it.
 
----
-
-God designed you to live out the careful plans He prepared for you. You are made in God’s image. The plan He wrote for you is perfect and right. No detail or part is missing. You have the potential to live out all that God has planned for your life—but only if you accept Jesus Christ as your Savior and Lord. That’s the first step toward understanding why you were born.
+Whenever God demands something of you, don’t ask whether you can do it. When you pick up the Bible and read that you can do anything if you believe, don’t argue that you can’t. God believes (in fact He knows) that whatever you believe hard enough, strong enough, and committed enough can come out of you because He put it in you. Your potential, like that of any other creation, is determined by the demands of your Creator.
 
 ---
 
-Though you’ve messed up God’s perfect plan for your life, He graciously offers to write another book for you. It probably won’t be the best-seller the first book was designed to be, but at least God gives you the chance to start over. He comes and puts you back in chapter one so you can live the many details of His plan. That’s what being born again is all about. It’s the opportunity to start over, it’s finally getting back to the first chapter of God’s book on you. God has great plans for you—that’s why He gave you life. Self-acceptance is the key to healthy self-esteem. 
+God also graciously offers you a “Money-Back Guarantee.” When you buy an appliance, a manual usually comes with it that says: “Read this before you hook it up.” It also says: “You’ve just purchased a television that can do XYZ.” You’ve never seen the television do that before, but the manual says it can and will because the manufacturer made it possible for it to do it. At the end of the manual, there is usually a little phrase that says: “If there is any defect, return the merchandise to the manufacturer for a free replacement.” The manufacturer is guaranteeing the potential of the thing.
 
-Accept yourself as God made you. Allow His power to transform your weakness, rather than belittling yourself when you make mistakes.
+God mercifully says to you, “If there are any defects, return to the Manufacturer.” Isn’t that a blessing? If you aren’t working out, take your stuff back to the Chief. The Chief will work it out. “Come unto Me,” God says. “I’m the only one who can fix you.” God already has guaranteed what you can do.
 
 ---
 
-> — *God has great plans for you that’s why He gave you life.*
+> — *God already has guaranteed what you can do.*
 
 

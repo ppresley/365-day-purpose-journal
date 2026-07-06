@@ -1,26 +1,28 @@
 # Week 10 — Day 7 (WHAT CAN YOU DO?)
 
-## From Thought to Action
+## If God Has It, You Have It
 
-> *He replied, “…I tell you the truth, if you have faith as small as a mustard seed, you can say to this mountain, ‘Move from here to there’ and it will move. Nothing will be impossible for you”*  
-> — **Matthew 17:20**
+> *But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness and self-control…*  
+> — **Galatians 5:22-23**
 
-A _thought_ is a silent word, so a word is an exposed thought. Everything in life starts in the thought form—it’s a thought first. After it’s said, it is no longer a thought. It becomes a word. The next step is an _idea_. An idea is the concept of the thought-it has moved into a reality. Ideas are potentials.
+Each of the fruit of the Spirit is an attribute of God. God unconditionally says, “They are you.” God knows you have love. He knows you have joy—it doesn’t matter what you are going through. God knows you have joy down there inside you, because Christ is joy.
 
----
-
-The third level of operation is what I call _imagination_. Imagination changes an idea into a plan. If you have an idea it can come and go. You have many ideas in a day—what to cook, what to wear, what to do. You may decide the night before what you are going to wear in the morning and then wake up with a different idea. Ideas change. But if an idea develops into an imagination, it means the idea has become a plan. It is still not written or drawn, but it is in your head. Imagination is therefore a plan that is not documented. It is a visual display of your thoughts and ideas. Ephesians 3:20 challenges us to believe God is able and willing to do _“exceeding abundantly far beyond all we can think or imagine.”_ He dares us to use our imaginations.
-
----
-
-If you want to be successful in life, take your ideas and turn them into imagination; then take imagination and duplicate it physically. Put it down. Let it become a plan of action.
-
-Many people never get beyond the idea stage. That’s sad. They are usually followers. The people who get to the imagination stage often talk a lot but they do nothing. They are dreamers. But when a man or woman takes his imagination and puts it on paper, you are looking at a visionary who is becoming a missionary. Visionaries see
-great things in their minds. Many visionaries are in the graveyard. They had visions, but their visions never made it to mission. When a visionary becomes a missionary, you have a man or woman who is going to change the world.
+Peace. How do you explain that? I used to think the Prince of Peace. “Hello, Prince.” I always thought: “Others have the peace. Give me some, Jesus.” But that’s not what the Bible teaches. The
+Bible says you have peace. When you are unhappy and everything is going wrong, God says, “Have peace.” He doesn’t say, “I’ll give you some peace,” because He can’t give you what you already have. Peace is not a gift; it’s a fruit. Joy is not a gift; it’s a fruit. If God has it, you have it.
 
 ---
 
-> — *Plans are documented imaginations.*
+In the beginning there was only God. All that is and all that was, was in God—everything. We came out of God. Thus, everything that is in God, is in us: love…joy…peace…patience…kindness…goodness…faithfulness…gentleness…self-control. These are in God and in us.
+
+“Love? I can’t like that person.”
+
+“You’re lying to me,” God says. “What do you mean you can’t love? Your spirit connected to My Spirit can do all things. Since I love, you can too.”
+
+As Romans 5:5 puts it: “_…God has poured out His love into our hearts by the Holy Spirit…_.” After you return to God, the Holy Spirit brings love back to your heart. He ignites the stuff that has been in your heart all along. It’s not that you can’t love; you just don’t want to love. Love isn’t a decision you make, because you already have it. That’s why you can love your enemies.
+
+---
+
+> — *Everything that is in God, is in us.*
 
 
 
