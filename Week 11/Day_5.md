@@ -1,20 +1,20 @@
 # Week 11 — Day 5 (DO WHAT GOD DOES)
 
-## You Can Do Everything God Asks
+## Don’t Let the World Determine Your Potential
 
-> *…and His incomparably great power for us who believe. That power is like the working of His mighty strength*  
-> — **Ephesians 1:19**
+> *What is man that you are mindful of him, the son of man that you care for him?*  
+> — **Psalm 8:4**
 
-God is good. He has built into you the potential to produce everything He calls for. When God says, “Love your enemies,” don’t start listing reasons why you can’t. The ability to love is built in…it’s there…no excuses. God wouldn’t ask for it if it wasn’t available. He wired you to produce everything He demands.
-
-God also wired everything else to produce what He demands from it. God looks at a piece of fruit and says, “In you there is a tree. There is a seed in you, and that seed is a tree. It’s there, and I demand what I put in.” So God says, “Plant that seed and a tree has to come out; I put a tree in that seed. Before you were given the fruit, I made the seed with the tree.” That’s the way God thinks. Hallelujah!
+We have allowed the world around us to determine our potential. Teachers say to students: “You are a C student.” The student then goes around believing that, and he becomes an average student for the rest of his life—an average person even. He becomes an average husband. She becomes an average wife. We become average parents and average children with average attitudes and IQs. And when we turn out to be average, our parents say: “Well, honey, you have my genes.” No. They received your attitude that was transmitted to you from that teacher.
 
 ---
 
-Whenever God gives you a responsibility, He also gives you the ability to meet that responsibility. In other words, _whatever God calls for, He provides for_. If God tells you to do something, He knows you can do it. So don’t you dare tell God that you can’t. Just because He told you to assume that responsibility means He knows you can do it. The problem isn’t that you can’t, it’s just that you _won’t_.
-
-Whether you use the ability God has deposited within you is totally up to you. How well you assume the responsibilities God gives you is not so much a question of how much you _do_, but rather how much of the available power you use. What you are doing is not near what your ability is. What you have accomplished is a joke when compared with what you could accomplish—you are not working enough with the power of God (emphasis on work).
+You need to shake off what people call IQs. Do you know what “IQ” means? It means Intelligence Quotient—it’s what people believe your degree of intelligence is based upon some tests you take. These tests measure your motor skills, your thinking ability, your cognitive ability, your reading ability, your math ability, etc. Then based on these tests they say, “You are a D student. You are a D person.” You haven’t even grown up yet and they are telling you what you are going to be and do! They don’t know what you are going to do.
 
 ---
 
-> — *Whenever God gives you a responsibility, He also gives you the ability to meet that responsibility.*
+Unfortunately, people believe what they are told based on those tests. There are thousands of examples in history of men and women who were put off and cast out as misfits. Later they turned out to be some of the world’s greatest leaders. We must be careful when we start putting Intelligence Quotients on people. Your potential has nothing to do with those tests. Only God determines your potential. Your IQ is spelled H-O-L-Y S-P-I-R-I-T. Your IQ is something that goes far beyond the pages of a test. It goes all the way to God.
+
+---
+
+> — *Only God determines your potential.*

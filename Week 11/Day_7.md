@@ -1,28 +1,22 @@
 # Week 11 — Day 7 (DO WHAT GOD DOES)
 
-## If God Has It, You Have It
+## Created for Eternal Life
 
-> *But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness and self-control…*  
-> — **Galatians 5:22-23**
+> *Lord, you have been our dwelling place throughout all generations*  
+> — **Psalm 90:1**
 
-Each of the fruit of the Spirit is an attribute of God. God unconditionally says, “They are you.” God knows you have love. He knows you have joy—it doesn’t matter what you are going through. God knows you have joy down there inside you, because Christ is joy.
-
-Peace. How do you explain that? I used to think the Prince of Peace. “Hello, Prince.” I always thought: “Others have the peace. Give me some, Jesus.” But that’s not what the Bible teaches. The
-Bible says you have peace. When you are unhappy and everything is going wrong, God says, “Have peace.” He doesn’t say, “I’ll give you some peace,” because He can’t give you what you already have. Peace is not a gift; it’s a fruit. Joy is not a gift; it’s a fruit. If God has it, you have it.
+God is called a creator because He always has something to do. God is always busy doing something. When God took us out of Himself, He gave us part of His Spirit. God is Spirit and spirits are eternal. They cannot die. Therefore, what is spirit and comes out of God is also eternal. When God created human beings, He said, “This one will keep Us excited forever. Let’s make and create a being in Our own image. Let’s make one who will not fade away.” Mountains will fade away and rivers will run dry. Streams will evaporate and the oceans will go away. But when God came up with man, He created something that would last forever. He took man out of Himself. God made you spirit and put so much stuff in you that it will take an eternal life to live it all. *Your true potential requires eternal life to be realized and maximized.*
 
 ---
 
-In the beginning there was only God. All that is and all that was, was in God—everything. We came out of God. Thus, everything that is in God, is in us: love…joy…peace…patience…kindness…goodness…faithfulness…gentleness…self-control. These are in God and in us.
+There is no retirement in the Bible. Why? Because God knows you have eternity to go just like He does. God wants you to assist Him in creating and developing and dominating and ruling forever
+and ever and ever. That’s a long time. The wealth of your potential is so rich it requires an eternal life to bring it out.
 
-“Love? I can’t like that person.”
+We are not going to be in Heaven for a million years bowing down around a throne. God doesn’t have an ego problem. He doesn’t need us to tell Him how nice He is. In fact, He was nice without us. We make Him look pretty bad. We’ve really messed up God. We came out of God. We are the only ones made in His image, and look what we did. God was better off without us. He doesn’t need our
+praises to make Him feel high.
 
-“You’re lying to me,” God says. “What do you mean you can’t love? Your spirit connected to My Spirit can do all things. Since I love, you can too.”
-
-As Romans 5:5 puts it: “_…God has poured out His love into our hearts by the Holy Spirit…_.” After you return to God, the Holy Spirit brings love back to your heart. He ignites the stuff that has been in your heart all along. It’s not that you can’t love; you just don’t want to love. Love isn’t a decision you make, because you already have it. That’s why you can love your enemies.
+God has placed enough potential in you to last forever. Try to do as much now as you can. Pack as much as you can into the 70 to 100 years you have here. Go for it. Go for a hunk of gold. Go for the mountain that has the gold in it. Go for the whole thing. Because if you can think it, you can do it. God is the limit of your ability. He won’t allow you to think it if you can’t do it.
 
 ---
 
-> — *Everything that is in God, is in us.*
-
-
-
+> — *There’s no retirement in the Bible.*

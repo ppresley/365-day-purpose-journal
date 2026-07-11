@@ -1,23 +1,42 @@
 # Week 11 — Day 6 (DO WHAT GOD DOES)
 
-## If You Think It, You Can Do It
+## Spirits Cannot Die
 
-> *There is surely a future hope for you, and your hope will not be cut off*  
-> — **Proverbs 23:18**
+> *After that, we who are still alive and are left will be caught up together with them in the clouds to meet the Lord in the air. And so we will be with the Lord forever*  
+> — **1 Thessalonians 4:17**
 
-You have a deposit of God’s ability! Any person who sets a limit on what he _can_ do, also sets a limit on what he _will_ do. No one can determine how much you can produce except you and God. So there is nothing in this world that should stop you from accomplishing and realizing and fulfilling and maximizing your full potential.
+One day as I was talking with the Holy Spirit, He said to me,
+Patrick, what are you?”
+I said, “Spirit.”
+
+He said, “Yea! You got that down! Do you know that spirits cannot die?”
+I said, “This is true.”
+
+Then He said, “Why do humans think in terms of time only? I came back to earth to introduce humans to eternity.”
+
+I said, “Whoa!”
 
 ---
 
-Proverbs 23:7 tells us: If you can conceive it, you can do it. Obviously God is trying to communicate that you _can_ do anything you can _think_. If you can conceive it, the fact that you can conceive it means you can do it. It doesn’t matter if it’s never been done—if you think it, you can do it. Likewise, if you never think it, you can’t do it. God allows you to think only what you can do. If He doesn’t allow you to think it, He knows you can’t do it.
+Then the Holy Spirit showed me how God had designed us to live forever. He said, “If you have to live forever, which you will, what are you going to do? God intended you to live forever because
+spirits never die. And you have to live forever being fulfilled. God never makes anything without a purpose. So you are designed to live forever and you’ve got to be fulfilling your purpose in life. God had to make sure He stored enough in you to last forever so you will
+never get bored.”
+
+That blew my mind. We are going to live forever.
+
+Sometimes we sing: “When I get to Heaven I’m going to praise the Lord for a thousand years.”
+“What are you going to do after that?”
+
+“Well, then I’ll walk around the streets of gold for another thousand years.”
 
 ---
 
-Think about the things you’ve been thinking recently. The fact that you thought them means you can do them. Now don’t get me wrong. Thinking doesn’t get it done. Thinking implies you can do it. See yourself doing the thing in your thoughts. Make your thought into an idea, and your idea into an imagination. Take that imagination and document it into a plan. Then go to it (of course with the proper rest periods). Put your plan into action. If you thought it, you can do it.
+“What are you going to do after that?” You have eternity to live. After a million years of worshiping and bowing and keeping company with the angels, what are you going to do? Your mind is so small. You think, “Wow. Look what I have accomplished.”
+
+God says, “Gosh, your life is a spot in eternity—just a drop in eternity. You will not begin really living until you leave time and enter eternity.”
+
+God has packed so much into you that the book He wrote on you is only the book for time. Your potential from birth to death is contained in that book, a book so full of expectations that David says it is “vast.”
 
 ---
 
-> — *If you can conceive it, you can do it.*
-
-
-
+> — *You will not begin really living until you leave time and enter eternity.*

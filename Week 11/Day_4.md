@@ -1,22 +1,20 @@
 # Week 11 — Day 4 (DO WHAT GOD DOES)
 
-## God’s “Money-Back” Guarantee
+## God Wants You to Know His Thoughts
 
-> *But the Scripture declares that the whole world is a prisoner of sin, so that what was promised, being given through faith in Jesus Christ, might be given to those who believe*  
-> — **Galatians 3:22**
+> *Do not conform any longer to the pattern of this world, but be transformed by the renewing of your mind. Then you will be able to test and approve what God’s will is—His good, pleasing and perfect will*  
+> — **Romans 12:2**
 
-The potential of a thing is determined by the demands placed upon it by the creator. This is the most amazing thing I have ever discovered about potential. The potential of a thing is determined by the demands made on it by the one who made it. A creator will not call forth from his creation something he did not put into it.
-
-Whenever God demands something of you, don’t ask whether you can do it. When you pick up the Bible and read that you can do anything if you believe, don’t argue that you can’t. God believes (in fact He knows) that whatever you believe hard enough, strong enough, and committed enough can come out of you because He put it in you. Your potential, like that of any other creation, is determined by the demands of your Creator.
+When God told His people: “*For My thoughts are not your thoughts, neither are your ways My ways*” (Isa. 55:8), He was not saying He doesn’t want our ways and thoughts to be like His. God was telling us: “Your thoughts and ways are not like Mine, but I’m trying to get them like Mine.” God wants us to have a mind like His. He told us through the apostle Paul to be transformed by the renewing of our minds. He wants you to know and obey His will—doing what is pleasing and acceptable in His sight (see Romans 12:2). Go back to the old mind in the Garden. That’s the way to think.
 
 ---
 
-God also graciously offers you a “Money-Back Guarantee.” When you buy an appliance, a manual usually comes with it that says: “Read this before you hook it up.” It also says: “You’ve just purchased a television that can do XYZ.” You’ve never seen the television do that before, but the manual says it can and will because the manufacturer made it possible for it to do it. At the end of the manual, there is usually a little phrase that says: “If there is any defect, return the merchandise to the manufacturer for a free replacement.” The manufacturer is guaranteeing the potential of the thing.
+What a blessing it is to know that you can wake up tomorrow morning and have God’s thoughts. But too often you wake up and say: “Oh, God. It’s Monday.”
 
-God mercifully says to you, “If there are any defects, return to the Manufacturer.” Isn’t that a blessing? If you aren’t working out, take your stuff back to the Chief. The Chief will work it out. “Come unto Me,” God says. “I’m the only one who can fix you.” God already has guaranteed what you can do.
+God says: “You’re not thinking like Me. This is a day I made just for you. Come on, let’s go out there and give ’em Heaven.” Give ’em Heaven? Yeah, that’s right. There’s a world out there that is hurting. Let’s go give them Heaven.
+
+But we have the attitude: “Oh God. I can never be like You.” God comes to us and says, “My child, that’s exactly what I want you to do. Have the mind of Christ. Think like Me.” God wants you to adopt His mind and attitude toward yourself. He desires that you think about yourself the way He does. Believe His assessment of your potential.
 
 ---
 
-> — *God already has guaranteed what you can do.*
-
-
+> — *Believe God’s assessment of your potential.*

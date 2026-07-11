@@ -1,21 +1,26 @@
 # Week 11 — Day 1 (DO WHAT GOD DOES)
 
-## All Things Are Possible
+## Dominate the Earth
 
-> *For nothing is impossible with God*  
-> — **Luke 1:37**
+> *Then God said, “Let Us make man in Our image, in Our likeness, and let them rule over the fish of the sea and the birds of the air, over the livestock, over all the earth, and over all the creatures that move along the ground”*  
+> — **Genesis 1:26**
 
-For about two years now my little cousin has been coming to me when she’s trying to do something and saying, “I can’t do this.” I always respond to her by saying, “There is nothing named ‘can’t’” When she comes back to me and says, “I don’t know how to do it,” I always reply, “There’s always a way to do everything.”
-
----
-
-Several days ago my other cousin and I were out in the yard playing bat and ball. I was throwing the ball to him and he kept on missing with the bat. Finally he became really upset and said, “I can’t do that,” to which I replied, “There’s nothing named ‘can’t.’” Slowly he repeated after me, “There’s nothing named ‘can’t.’” Then I said, “Hold the bat,” and I threw the ball. He hit the ball and then said, “There’s nothing named ‘can’t.’”
+Your purpose for being is to dominate the earth. (God did not create you to go to church. You go to church because you need to relearn how to live again. Church is school, and when you graduate you will be dead. That’s the perfect graduation ceremony—death. Then you finally will come back to who you really are.) You were created to dominate the earth. If God created you and commanded
+you to dominate the earth, God also is aware that you can do it.
 
 ---
 
-Several days later when I stopped by home to drop off my cousin, my other cousin came running and wanted to play football. When I said that I had to go back to the office to do some work, he insisted that he wanted to play ball with me then. When I again replied that I had to go to the office, he said, “There’s nothing named ‘can’t.’ ” Do you see the point? If he begins to think that way at four years of age, this world is in for a winner. Too often we fail in our efforts
-because we have been brought up believing that we cannot do some things. The people who change the world are people who have taken impossible out of their dictionaries. The men and women who make changes in history are those who come against the odds and tell the odds that it’s impossible for the odds to stop them.
+God says, “Dominate the earth.”
+
+And you quickly reply, “But, but, but…”
+
+Still God says, “Dominate the earth. I have created you to dominate the earth. I demand that you control, rule, govern, dominate, subdue, and subject this planet.”
 
 ---
 
-> — *A man cannot discover new oceans unless he has the courage to lose sight of the shore.*
+God wouldn’t have made that demand if you couldn’t do it. He wired you to dominate this planet. You have the potential to dominate the earth because God placed within every human being the
+ability to dominate the planet. That is a very serious domination. You dare not complain when you are dominated by the earth (instead of the earth being dominated by you) because God has placed within you the capacity to do whatever He asks. Don’t you dare tell God that you cannot do it. He did not give you the responsibility without also giving you the ability. He created you with the ability to dominate the earth.
+
+---
+
+> — *Your purpose for being is to dominate the earth.*

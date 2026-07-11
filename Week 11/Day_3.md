@@ -1,25 +1,23 @@
 # Week 11 — Day 3 (DO WHAT GOD DOES)
 
-## The Demands of the Creator
+## You Are the Cream of the Crop
 
-> *As you do not know the path of the wind, or how the body is formed in a mother’s womb, so you cannot understand the work of God, the Maker of all things*  
-> — **Ecclesiastes 11:5**
+> *God blessed them and said to them, “Be fruitful and increase in number; fill the earth and subdue it. Rule over the fish of the sea and the birds of the air and over every living creature that moves on the ground”*  
+> — **Genesis 1:28**
 
-Genesis chapter 1 also teaches us that potential is determined by the demands made on it by the creator of it. This is the most amazing thing I have ever discovered about potential. The potential of a thing is determined by the demands made on it by the one who made it. A creator will not call forth from his creation something he did not put into it.
-
----
-
-If, for example, the Tata Motor Company wanted to build a car with an engine that was supposed to have a certain degree of horsepower to get up to 240 kilometers per hour, they would create a car with enough spark plugs and pistons and other things to run at that speed. First they would design it. Then they would build it. Finally they would hire a professional to take it on a test track to clock its speed. Because they designed and built the car to run at 240 kilometers per hour, they would tell the driver: “Run this car until it hits 240 kilometers per hour.”
-Now how can they demand from that car 240 kilometers per hour? Simple. They built into the car the ability to produce 240 kilometers per hour. If all other cars can only go 198 kilometers per hour, they have reason to believe their car will go into a race and win. They are calling forth from the car, or demanding of it, what they created it to produce.
+No one needs to be ruled by cocaine or marijuana. Nobody needs to be the victim of alcohol and money. They are all but leaves from the trees that we are supposed to be dominating. The only way to escape these and other dominating habits is to understand your purpose for being. God did not create you to be dominated by sex or chemicals. He did not create you to be *controlled* by anything. He created you so *you could control* the earth.
 
 ---
 
-Or let’s think about a flight of the spaceship Challenger. The people who plan a trip into space decide before the spaceship ever leaves earth when the journey will begin, where the spaceship will go, what the crew will do while in space, how long the trip will last, and where the ship will land. The men who created the spaceship and the people who trained the astronauts know what the ship and the crew can do. The demands they make are thus consistent with their potential.
+You are so much more than others expect from you. You are so much more than you expect from yourself. God calls us sanctified—that means special. God calls us elite—that means cream of the crop. And what God calls you He sees in you. God’s not trying to conjure up things when He affirms who you are. He already sees them in you.
 
-Or suppose you want to take an airplane trip. If you want to fly from Delhi to Mumbai, you depend upon the expertise and knowledge of others to assure you that you will get there. You may look at the airplane and say, “This thing will never get me to Mumbai,” but what you believe doesn’t really matter because you are not the creator of either the airplane or the flight
-route. The folks who build and maintain the airplane would never require it to make the trip from Delhi to Mumbai if they thought the plane lacked the potential to do so. The ticket agent would never schedule you for that airplane if he knew the flight didn’t go to Mumbai. The
-potential of a thing is determined by the demands placed upon it by the creator.
+God looks under all the junk and says what He sees. He says: “You are pure. You are the righteousness of God in Christ Jesus.” He looks beneath our unrighteous behavior and sees righteousness. He sees it and calls it out. He’ll keep calling it out until it reaches the surface. God’s not trying to *make you* into something. He’s trying to expose the real you He already sees. While you are walking around trying to be good and righteous, God says, “You already are righteous.”
 
 ---
 
-> — *The potential of a thing is determined by the demands placed upon it by the creator.*
+When you wake up tomorrow morning, stretch, look in the mirror and say: “You successful thing you.” That’s what God sees. No matter what kind of bum day is planned for you, you can decide in
+the morning that it’s going to be a successful one. Why? Because this is the day the Lord has made. If you believe, it is possible the day will be good. It is possible to rejoice every day if you believe God has made it. Go ahead. Stretch. Look at the success that is just waiting to happen.
+
+---
+
+> — *God’s not trying to make you into something. He’s trying to expose the real you.*

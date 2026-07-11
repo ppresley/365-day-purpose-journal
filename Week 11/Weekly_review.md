@@ -1,9 +1,9 @@
 # Week 11 — Review (DO WHAT GOD DOES)
 
-## REVIEW the principles from this week:
+## REVIEW the principles from this week
 
-- The potential of a thing is related to its source.
-- Your potential is as great as God’s potential, because when God wanted you He spoke to Himself.
-- Potential is determined by the demands made on it by the creator.
-- If you can think it, you can do it.
 - Your potential is everything that is in Christ. So if God has it, you have it.
+- God created you and commanded you to dominate the earth.
+- God will never demand anything He hasn’t already provided for. Whatever God calls forth, He
+sees.
+- The wealth of your potential is so rich it requires an eternal life to bring it out.
