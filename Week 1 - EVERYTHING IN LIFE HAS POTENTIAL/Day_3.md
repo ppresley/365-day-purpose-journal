@@ -18,7 +18,7 @@ Nothing in life is instant. People think miracles are instant, but they really a
 
 ---
 
-He did not create a ready-made human race—the earth was not given an instant population. 
+He did not create a ready-made human race—the earth was not given an instant population.
 God made one person—not a million people. He started with one seed. Then from that one He created another. Then He said to those seeds, *“Bless you (that means, ‘You have My permission’). Be fruitful and multiply and replenish the earth.”*
 
 ---
