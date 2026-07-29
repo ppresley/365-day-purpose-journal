@@ -29,4 +29,4 @@ That’s the way God works. He knows the potential principle because He introduc
 
 ---
 
-> - *God created everything with potential, including you.* 
+> - *God created everything with potential, including you.*
