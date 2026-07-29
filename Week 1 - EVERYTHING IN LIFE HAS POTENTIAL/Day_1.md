@@ -1,6 +1,4 @@
-# Week 1 — Day 1 (EVERYTHING IN LIFE HAS POTENTIAL)
-
-## The Wealthiest Spot on Earth
+# Week 1 — Day 1 - The Wealthiest Spot on Earth
 
 > *Now to Him who is able to do immeasurably more than all we ask or imagine, according to His power that is at work within us.*  
 > — **Ephesians 3:20 (NIV)**
@@ -12,6 +10,7 @@ Though it may surprise you, the richest deposits on our planet lie just a few bl
 They rest in your local cemetery or graveyard.
 
 Buried beneath the soil within the walls of those sacred grounds are:
+
 - Dreams that never came to pass  
 - Songs that were never sung  
 - Books that were never written  
@@ -60,7 +59,12 @@ I know, because God has shown me the vast store He placed in me.
 My purpose is to help you understand that potential and bring it out.
 
 You must decide:
+
 - Will you rob the world…  
 - Or bless it with the rich, valuable, untapped resources locked within you?
 
-> **You are more than what you have done.**
+You are more than what you have done.
+
+---
+
+> — *One of the greatest tragedies in life is to watch potential die untapped.*

@@ -1,6 +1,4 @@
-# Week 1 — Review (EVERYTHING IN LIFE HAS POTENTIAL)
-
-## REVIEW the principles from this week:
+# Week 1 — REVIEW the principles from this week
 
 - God created everything with potential.
 - Nothing in life is instant.

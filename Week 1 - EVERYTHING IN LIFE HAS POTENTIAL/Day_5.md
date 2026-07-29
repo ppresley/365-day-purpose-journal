@@ -1,11 +1,9 @@
-# Week 1 — Day 5 (EVERYTHING IN LIFE HAS POTENTIAL)
-
-## Don’t Die With My Things
+# Week 1 — Day 5 - Don’t Die With My Things
 
 > *Do not neglect your gift, which was given you through a prophetic message when the body of elders laid their hands on you*  
 > — **1 Timothy 4:14**
 
-Suppose Shakespeare had died before he wrote his poems and plays. The potential of _Macbeth_ would have been buried. Suppose Michelangelo had died before he painted the Sistine Chapel or DaVinci the Mona Lisa, the beauty of their paintings would have been lost. Suppose Mozart had died with all that music in his bosom.
+Suppose Shakespeare had died before he wrote his poems and plays. The potential of *Macbeth* would have been buried. Suppose Michelangelo had died before he painted the Sistine Chapel or DaVinci the Mona Lisa, the beauty of their paintings would have been lost. Suppose Mozart had died with all that music in his bosom.
 
 ---
 
@@ -26,5 +24,6 @@ I wonder what would have happened if your father had died before you were concei
 
 Our teens are committing suicide. I wonder who they were supposed to be and what they were supposed to do that we will never know. Have we lost some great leaders? Was your grandchild’s professor or another Martin Luther King among them?
 
+---
 
-
+> - *What will the world lack because you fail to live out your potential.*
