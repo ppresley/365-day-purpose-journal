@@ -1,6 +1,4 @@
-# Week 4 — Day 1 (THIS IS WHO YOU ARE)
-
-## God Pronounces What He Sees
+# Week 4 — Day 1 - God Pronounces What He Sees
 
 > *And I tell you that you are Peter, and on this rock I will build my Church, and the gates of Hades will not overcome it*  
 > — **Matthew 16:18**

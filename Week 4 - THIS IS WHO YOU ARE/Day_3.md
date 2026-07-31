@@ -1,11 +1,9 @@
-# Week 4 — Day 3 (THIS IS WHO YOU ARE)
-
-## What Others Look At Is Not Important
+# Week 4 — Day 3 - What Others Look At Is Not Important
 
 > *For I know the plans I have for you,” declares the Lord, “plans to prosper you and not to harm you, plans to give you hope and a future”*  
 > — **Jeremiah 29:11**
 
-Too often we believe the lies we are told. We believe that we are “no good” and worthless. Jesus says, “Not so. I came to show you that you are more than you think you are.” You are the image of God. 
+Too often we believe the lies we are told. We believe that we are “no good” and worthless. Jesus says, “Not so. I came to show you that you are more than you think you are.” You are the image of God.
 
 ---
 
@@ -13,7 +11,7 @@ God saw in Peter something that Peter had never seen in himself. Peter was so bu
 
 ---
 
-Do you believe you could walk into a prison and meet some of the greatest men and women in the world? Can you think that way? They made a mistake. They made a misjudgment. They made poor decisions. But that doesn’t invalidate their potential. It doesn’t destroy who they can be. In that jail there may be a murderer on death row. But when God looks at that person, He doesn’t see a murderer; He sees an author or a leader or a great world changer. 
+Do you believe you could walk into a prison and meet some of the greatest men and women in the world? Can you think that way? They made a mistake. They made a misjudgment. They made poor decisions. But that doesn’t invalidate their potential. It doesn’t destroy who they can be. In that jail there may be a murderer on death row. But when God looks at that person, He doesn’t see a murderer; He sees an author or a leader or a great world changer.
 
 ---
 

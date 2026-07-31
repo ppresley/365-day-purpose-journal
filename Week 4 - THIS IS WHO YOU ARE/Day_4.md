@@ -1,6 +1,4 @@
-# Week 4 — Day 4 (THIS IS WHO YOU ARE)
-
-## What Does God See in You?
+# Week 4 — Day 4 - What Does God See in You?
 
 > *Since you are precious and honored in my sight, and because I love you, I will give men in exchange for you, and people in exchange for your life*  
 > — **Isaiah 43:4**
@@ -19,5 +17,3 @@ Eventually, I modified my design. The modification is not evident in the finishe
 ---
 
 > — *There is something in you more precious than what others have said about you.*
-
-

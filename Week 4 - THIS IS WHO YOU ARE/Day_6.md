@@ -1,17 +1,15 @@
-# Week 4 — Day 6 (THIS IS WHO YOU ARE)
-
-## Who You Really Are
+# Week 4 — Day 6 - Who You Really Are
 
 > *...until we all reach unity in the faith and in the knowledge of the Son of God and become mature, attaining to the whole measure of the fullness of Christ*  
 > — **Ephesians 4:13**
 
-We humans on earth, with all our fallibilities and weaknesses. God pronounces on us: “You are the Body of Christ.” 
+We humans on earth, with all our fallibilities and weaknesses. God pronounces on us: “You are the Body of Christ.”
 
 In other words, Christ is in us somewhere. Christ is in me. Christ is in you. God knows He is there. His image is there. So God called us Christ.
 
 ---
 
-If we go to God and say, “God, please introduce me to your people,” God will say, “Sure. Here is Christ.” But we’ll say, “No. No. No. I want to meet Christ,” to which God will reply, “Sure. Here’s Christ” as He shows us the Church. When we want to meet Christ, God will show us the Church. But we can’t accept this because we think Christ is in Heaven. No, He isn’t. _Jesus_ is in Heaven. _Christ_ is sitting in your clothes, living in the body of the believer. Christ is the essence of God. He’s God Himself.
+If we go to God and say, “God, please introduce me to your people,” God will say, “Sure. Here is Christ.” But we’ll say, “No. No. No. I want to meet Christ,” to which God will reply, “Sure. Here’s Christ” as He shows us the Church. When we want to meet Christ, God will show us the Church. But we can’t accept this because we think Christ is in Heaven. No, He isn’t. *Jesus* is in Heaven. *Christ* is sitting in your clothes, living in the body of the believer. Christ is the essence of God. He’s God Himself.
 
 ---
 
@@ -23,6 +21,3 @@ IQ doesn’t measure who you are, God does. Your true IQ is spelled H-O-L-Y S-P-
 ---
 
 > — *Christ is in you. That’s who you are.*
-
-
-

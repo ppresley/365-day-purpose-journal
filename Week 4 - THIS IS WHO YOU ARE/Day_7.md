@@ -1,6 +1,4 @@
-# Week 4 — Day 7 (THIS IS WHO YOU ARE)
-
-## Don’t Bury Your Talent
+# Week 4 — Day 7 - Don’t Bury Your Talent
 
 > *But the man who had received the one talent went off, dug a hole in the ground and hid his master’s money*  
 > — **Matthew 25:18**
@@ -10,6 +8,7 @@ Scientists in the field of human potential have estimated that we use as little 
 ---
 
 Consider the life of Abraham Lincoln. His story is one of the most dramatic examples of a man struggling to release the wealth of potential locked up inside him:
+
 - He lost his job in 1832.
 - He was elected to the legislature in 1834.
 - He suffered the death of his sweetheart in 1834.
@@ -25,12 +24,9 @@ Consider the life of Abraham Lincoln. His story is one of the most dramatic exam
 
 ---
 
-_Everything in life was created with potential and possesses the potential principle_. In every seed there is a tree…in every bird a flock…in every fish a school…in every sheep a flock… in every cow a herd…in every boy a man…in every girl a woman…in every nation a generation. Tragedy strikes when a tree dies in a seed, a man
+*Everything in life was created with potential and possesses the potential principle*. In every seed there is a tree…in every bird a flock…in every fish a school…in every sheep a flock… in every cow a herd…in every boy a man…in every girl a woman…in every nation a generation. Tragedy strikes when a tree dies in a seed, a man
 in a boy, a woman in a girl, an idea in a mind. For untold millions, visions die unseen, songs die unsung, plans die unexecuted and futures die buried in the past. The problems of our world go unanswered because potential remains buried.
 
 ---
 
 > — *Most of us have no idea how much talent and potential we possess.*
-
-
-
