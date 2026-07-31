@@ -1,6 +1,4 @@
-# Week 2 — Day 7 (THE SOURCE OF ALL POTENTIAL)
-
-## The Work of Creation Is Not Yet Complete
+# Week 2 — Day 7 - The Work of Creation Is Not Yet Complete
 
 > *What has been will be again, what has been done will be done again; there is nothing new under the sun*  
 > — **Ecclesiastes 1:9**
@@ -21,6 +19,3 @@ wants us to tap His power and use it, because God made us with potential.
 ---
 
 > — *Nothing we think or do is new.*
-
-
-

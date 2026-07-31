@@ -1,6 +1,4 @@
-# Week 2 — Day 3 (THE SOURCE OF ALL POTENTIAL)
-
-## In God Was the Beginning
+# Week 2 — Day 3 - In God Was the Beginning
 
 > *In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. Through Him all things were made; without Him nothing was made that has been made. In Him was life…*  
 > — **John 1:1-4**
@@ -8,11 +6,11 @@
 Before there was a beginning, there was God. Everything that is was in God.
 The Gospel of John tells us that all things were made by the Word.
 
-Nothing that was created was made without the Word. In _the Word_ was life. _Life_ came out of God. Therefore, before you knew life, life was. _All_ things were made by God. Everything you see, hear, smell, taste, and touch was in God before they came to be. Even what you discern first existed in God.
+Nothing that was created was made without the Word. In *the Word* was life. *Life* came out of God. Therefore, before you knew life, life was. *All* things were made by God. Everything you see, hear, smell, taste, and touch was in God before they came to be. Even what you discern first existed in God.
 
 ---
 
-Now let me be a little ridiculous to prove my point. God had roaches and mosquitoes and rats in Him. He had suns and clouds and planets in Him. The cows to make shoe leather…the oil to run our cars…the ore from the mountains to make steel—all these things were in God. Everything on this earth is God’s property. If God would ever call in His property, we would be in big trouble. All things were in God and thus belong to Him. God, in the beginning when there was nothing, contained everything that man _has seen_. He also contained everything man _will ever see_.
+Now let me be a little ridiculous to prove my point. God had roaches and mosquitoes and rats in Him. He had suns and clouds and planets in Him. The cows to make shoe leather…the oil to run our cars…the ore from the mountains to make steel—all these things were in God. Everything on this earth is God’s property. If God would ever call in His property, we would be in big trouble. All things were in God and thus belong to Him. God, in the beginning when there was nothing, contained everything that man *has seen*. He also contained everything man *will ever see*.
 
 ---
 

@@ -1,6 +1,4 @@
-# Week 2 — Day 5 (THE SOURCE OF ALL POTENTIAL)
-
-## SPOKE Was Hard Work
+# Week 2 — Day 5 - SPOKE Was Hard Work
 
 > *My own hand laid the foundations of the earth, and My right hand spread out the heavens; when I summon them, they all stand up together*  
 > — **Isaiah 48:13**
@@ -10,7 +8,7 @@ What happened when God spoke at creation? How did He get the invisible to become
 
 ---
 
-_Spoke_ was a process. What God spoke into visibility began as an idea in His mind. God first conceived in His mind what He wanted to create. He didn’t just say, “I want this.” The prophet Isaiah tells us that God created the earth by first planning its foundations (Isaiah 48:13). After the plans were in His mind, God spoke them into existence. When God was ready to speak, it was just a matter of taking
+*Spoke* was a process. What God spoke into visibility began as an idea in His mind. God first conceived in His mind what He wanted to create. He didn’t just say, “I want this.” The prophet Isaiah tells us that God created the earth by first planning its foundations (Isaiah 48:13). After the plans were in His mind, God spoke them into existence. When God was ready to speak, it was just a matter of taking
 what was in the plan and putting it on the site.
 
 ---
@@ -21,6 +19,3 @@ Thunder and lightning were created by His command; hail and sleet were formed by
 ---
 
 > — *After the plans were in His mind, God spoke them into existence.*
-
-
-

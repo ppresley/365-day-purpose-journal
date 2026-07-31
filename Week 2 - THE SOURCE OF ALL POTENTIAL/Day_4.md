@@ -1,6 +1,4 @@
-# Week 2 — Day 4 (THE SOURCE OF ALL POTENTIAL)
-
-## The Invisible Became Visible
+# Week 2 — Day 4 - The Invisible Became Visible
 
 > *By faith we understand that the universe was formed at God’s command, so that what is seen was not made out of what was visible*  
 > — **Hebrews 11:3**
@@ -22,10 +20,8 @@ In the beginning there was only God. At creation the entire unseen universe beca
 
 ---
 
-By faith God spat out what was in Him. Everything in Him started to come forth. What we now see was birthed by God from what was invisibly within Him. Whatever you see came from the unseen. Nothing exists that was not at some time in God. Thus, _faith is not the evidence of things that do not exist. It is the evidence of things that are not yet seen._ Everything we see has always been. It became visible when God spoke it into being. God is the source of life
+By faith God spat out what was in Him. Everything in Him started to come forth. What we now see was birthed by God from what was invisibly within Him. Whatever you see came from the unseen. Nothing exists that was not at some time in God. Thus, *faith is not the evidence of things that do not exist. It is the evidence of things that are not yet seen.* Everything we see has always been. It became visible when God spoke it into being. God is the source of life
 
 ---
 
 > — *What we now see was birthed by God from what was invisibly within Him.*
-
-
