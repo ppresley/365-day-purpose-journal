@@ -1,6 +1,4 @@
-# Week 3 — Day 2 (WHO ARE YOU?)
-
-## You Are Not Junk
+# Week 3 — Day 2 - You Are Not Junk
 
 > *I praise You because I am fearfully and wonderfully made; Your works are wonderful, I know that full well*  
 > — **Psalm 139:14**

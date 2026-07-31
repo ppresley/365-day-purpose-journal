@@ -1,13 +1,11 @@
-# Week 3 — Day 6 (WHO ARE YOU?)
-
-## Look at the Inventor, Not the Invention
+# Week 3 — Day 6 - Look at the Inventor, Not the Invention
 
 > *For although they knew God, they neither glorified Him as God nor gave thanks to Him, but their thinking became futile and their foolish hearts were darkened*  
 > — **Romans 1:21**
 
 Never use the creation to find out who you are, because the purpose of something is only in the mind of the One who made it. That is one of the reasons why God has a tremendous problem with idol worship. How can you identify your ability by worshiping a snake? How can you find out your worth by believing that you will come
 back as a rat or a roach? How dare you believe that your purpose for existence can be discovered in a relationship with a wooden statue? You will never know yourself by relating to the creation, only to the
-Creator. _The key to understanding life is in the source of life, not in the life itself._
+Creator. *The key to understanding life is in the source of life, not in the life itself.*
 
 ---
 
@@ -21,6 +19,3 @@ The automobile is tearing out lampposts all over the world and destroying people
 ---
 
 > — *You will never know yourself by relating to the creation, only to the Creator.*
-
-
-

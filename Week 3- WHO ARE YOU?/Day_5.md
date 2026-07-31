@@ -1,6 +1,4 @@
-# Week 3 — Day 5 (WHO ARE YOU?)
-
-## You Came Out of God
+# Week 3 — Day 5 - You Came Out of God
 
 > *Then God said, “Let us make man in Our image, in Our likeness…*  
 > — **Genesis 1:26a**
@@ -18,13 +16,10 @@ the soil. Animals only have the potential of dirt.
 All things are composed of whatever they came from and hence contain the potential of that source.
 When God wanted fish, He spoke to the water. When He wanted animals, He spoke to the dirt. When God created human beings, He spoke to Himself.
 
-```
+```yaml
 Then God said, “Let Us make man in Our image, in Our likeness….” So God created man in His own image, in the image of God He created him; male and female He created them (Genesis 1:26-27).
 ```
 
 ---
 
 > — *God created you by speaking to Himself. You came out of God and thus bear His image and likeness.*
-
-
-

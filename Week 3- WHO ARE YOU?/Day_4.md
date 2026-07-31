@@ -1,13 +1,11 @@
-# Week 3 — Day 4 (WHO ARE YOU?)
-
-## The Source of Your Creation
+# Week 3 — Day 4 - The Source of Your Creation
 
 > *So God created man in His own image, in the image of God He created him; male and female He created them*  
 > — **Genesis 1:27**
 
-When God created the heavens and the earth, He first decided what He wanted to make something out of and then He spoke to that source. When God wanted plants He spoke to the dirt. When God wanted fish He spoke to the waters. When God wanted animals He spoke to the ground. 
+When God created the heavens and the earth, He first decided what He wanted to make something out of and then He spoke to that source. When God wanted plants He spoke to the dirt. When God wanted fish He spoke to the waters. When God wanted animals He spoke to the ground.
 
-_Whatever God spoke to became the source from which the created thing came._
+*Whatever God spoke to became the source from which the created thing came.*
 
 ---
 
@@ -20,5 +18,3 @@ All things have the same components and essence as their source. What God create
 ---
 
 > — *Whatever God spoke to became the source from which the created thing came.*
-
-

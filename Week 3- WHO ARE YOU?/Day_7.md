@@ -1,6 +1,4 @@
-# Week 3 — Day 7 (WHO ARE YOU?)
-
-## You Have Part of God
+# Week 3 — Day 7 - You Have Part of God
 
 > *And just as we have borne the likeness of the earthly man, so shall we bear the likeness of the Man from Heaven*  
 > — **1 Corinthians 15:49**
@@ -14,11 +12,8 @@ you. The ability to be much more than it is at any one moment. Thus God created 
 
 ---
 
-That is not to say we are equal to God. No. What I am saying is that the word _omnipotent_ relates not only to God, but to us as well. We are always full of potential. Our potential is the dormant ability, reserved power, untapped strength and unused success God designed into each of us. What I see when I look at you is not all you are. It is only what you have become so far. Your potential is much greater than what you are right now. What you will become is much more than we could ever believe now. You are somebody because you came out of God, and He leaked some of Himself into you.
+That is not to say we are equal to God. No. What I am saying is that the word *omnipotent* relates not only to God, but to us as well. We are always full of potential. Our potential is the dormant ability, reserved power, untapped strength and unused success God designed into each of us. What I see when I look at you is not all you are. It is only what you have become so far. Your potential is much greater than what you are right now. What you will become is much more than we could ever believe now. You are somebody because you came out of God, and He leaked some of Himself into you.
 
 ---
 
 > — *You are who you are because God took you out of Himself.*
-
-
-
