@@ -1,6 +1,4 @@
-# Week 9 — Day 4 (WHY WERE YOU BORN?)
-
-## God Offers You a Rewrite
+# Week 9 — Day 4 - God Offers You a Rewrite
 
 > *You hem me in—behind and before; you have laid your hand upon me*  
 > — **Psalm 139:5**

@@ -1,6 +1,4 @@
-# Week 9 — Day 2 (WHY WERE YOU BORN?)
-
-## God Designed You To Be a Success Story
+# Week 9 — Day 2 - God Designed You To Be a Success Story
 
 > *My frame was not hidden from You when I was made in the secret place…* 
 > — **(Psalm 139:15)**

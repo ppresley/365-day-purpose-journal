@@ -1,6 +1,4 @@
-# Week 9 — Day 5 (WHY WERE YOU BORN?)
-
-## Born to Expose His Nature
+# Week 9 — Day 5 - Born to Expose His Nature
 
 > *…the people I formed for myself that they may proclaim my praise*  
 > — **Isaiah 43:21**

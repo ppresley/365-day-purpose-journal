@@ -1,6 +1,4 @@
-# Week 9 — Review (WHY WERE YOU BORN?)
-
-## REVIEW the principles from this week:
+# Week 9 — REVIEW the principles from this week:
 
 - You are worth feeling good about because God wanted you to be born.
 - God has a detailed plan for your life.

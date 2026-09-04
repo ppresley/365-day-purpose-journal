@@ -1,6 +1,4 @@
-# Week 9 — Day 6 (WHY WERE YOU BORN?)
-
-## Knock the Limits Off Your Life
+# Week 9 — Day 6 - Knock the Limits Off Your Life
 
 > *Jesus looked at them and said, “With man this is impossible, but with God all things are possible”*  
 > — **Matthew 19:26**

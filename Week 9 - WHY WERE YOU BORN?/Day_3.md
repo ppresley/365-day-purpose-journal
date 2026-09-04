@@ -1,6 +1,4 @@
-# Week 9 — Day 3 (WHY WERE YOU BORN?)
-
-## God Has a Book on You
+# Week 9 — Day 3 - God Has a Book on You
 
 > *Before a word is on my tongue you know it completely, O Lord*  
 > — **Psalm 139:4**

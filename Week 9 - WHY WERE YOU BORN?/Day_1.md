@@ -1,6 +1,4 @@
-# Week 9 — Day 1 (WHY WERE YOU BORN?)
-
-## God Planned Your Life
+# Week 9 — Day 1 - God Planned Your Life
 
 > *the Lord God formed the man from the dust of the ground and breathed into his nostrils the breath of life, and the man became a living being*  
 > — **Genesis 2:7**
