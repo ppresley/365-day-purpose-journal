@@ -1,6 +1,4 @@
-# Week 11 — Day 4 (DO WHAT GOD DOES)
-
-## God Wants You to Know His Thoughts
+# Week 11 — Day 4 - God Wants You to Know His Thoughts
 
 > *Do not conform any longer to the pattern of this world, but be transformed by the renewing of your mind. Then you will be able to test and approve what God’s will is—His good, pleasing and perfect will*  
 > — **Romans 12:2**

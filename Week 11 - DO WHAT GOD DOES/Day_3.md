@@ -1,6 +1,4 @@
-# Week 11 — Day 3 (DO WHAT GOD DOES)
-
-## You Are the Cream of the Crop
+# Week 11 — Day 3 - You Are the Cream of the Crop
 
 > *God blessed them and said to them, “Be fruitful and increase in number; fill the earth and subdue it. Rule over the fish of the sea and the birds of the air and over every living creature that moves on the ground”*  
 > — **Genesis 1:28**

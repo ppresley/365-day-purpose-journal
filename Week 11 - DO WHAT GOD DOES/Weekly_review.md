@@ -1,6 +1,4 @@
-# Week 11 — Review (DO WHAT GOD DOES)
-
-## REVIEW the principles from this week
+# Week 11 — REVIEW the principles from this week
 
 - Your potential is everything that is in Christ. So if God has it, you have it.
 - God created you and commanded you to dominate the earth.

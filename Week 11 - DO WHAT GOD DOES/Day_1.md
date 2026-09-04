@@ -1,6 +1,4 @@
-# Week 11 — Day 1 (DO WHAT GOD DOES)
-
-## Dominate the Earth
+# Week 11 — Day 1 - Dominate the Earth
 
 > *Then God said, “Let Us make man in Our image, in Our likeness, and let them rule over the fish of the sea and the birds of the air, over the livestock, over all the earth, and over all the creatures that move along the ground”*  
 > — **Genesis 1:26**

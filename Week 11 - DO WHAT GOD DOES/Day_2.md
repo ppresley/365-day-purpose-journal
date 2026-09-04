@@ -1,6 +1,4 @@
-# Week 11 — Day 2 (DO WHAT GOD DOES)
-
-## You Are More Than You or Others Expect
+# Week 11 — Day 2 - You Are More Than You or Others Expect
 
 > *…for everyone born of God overcomes the world. This is the victory that has overcome the world, even our faith*  
 > — **1 John 5:4**

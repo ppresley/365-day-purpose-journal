@@ -1,6 +1,4 @@
-# Week 11 — Day 7 (DO WHAT GOD DOES)
-
-## Created for Eternal Life
+# Week 11 — Day 7 - Created for Eternal Life
 
 > *Lord, you have been our dwelling place throughout all generations*  
 > — **Psalm 90:1**

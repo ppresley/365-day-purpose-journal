@@ -1,6 +1,4 @@
-# Week 11 — Day 6 (DO WHAT GOD DOES)
-
-## Spirits Cannot Die
+# Week 11 — Day 6 - Spirits Cannot Die
 
 > *After that, we who are still alive and are left will be caught up together with them in the clouds to meet the Lord in the air. And so we will be with the Lord forever*  
 > — **1 Thessalonians 4:17**

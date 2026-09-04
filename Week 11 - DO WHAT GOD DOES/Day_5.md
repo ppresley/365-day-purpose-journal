@@ -1,6 +1,4 @@
-# Week 11 — Day 5 (DO WHAT GOD DOES)
-
-## Don’t Let the World Determine Your Potential
+# Week 11 — Day 5 - Don’t Let the World Determine Your Potential
 
 > *What is man that you are mindful of him, the son of man that you care for him?*  
 > — **Psalm 8:4**
