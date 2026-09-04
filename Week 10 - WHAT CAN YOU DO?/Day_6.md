@@ -1,6 +1,4 @@
-# Week 10 — Day 6 (WHAT CAN YOU DO?)
-
-## If You Think It, You Can Do It
+# Week 10 — Day 6 - If You Think It, You Can Do It
 
 > *There is surely a future hope for you, and your hope will not be cut off*  
 > — **Proverbs 23:18**

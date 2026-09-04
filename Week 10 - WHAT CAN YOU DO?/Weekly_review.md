@@ -1,6 +1,4 @@
-# Week 10 — Review (WHAT CAN YOU DO?)
-
-## REVIEW the principles from this week:
+# Week 10 — REVIEW the principles from this week:
 
 - The potential of a thing is related to its source.
 - Your potential is as great as God’s potential, because when God wanted you He spoke to Himself.

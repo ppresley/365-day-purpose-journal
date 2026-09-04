@@ -1,6 +1,4 @@
-# Week 10 — Day 7 (WHAT CAN YOU DO?)
-
-## If God Has It, You Have It
+# Week 10 — Day 7 - If God Has It, You Have It
 
 > *But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness and self-control…*  
 > — **Galatians 5:22-23**

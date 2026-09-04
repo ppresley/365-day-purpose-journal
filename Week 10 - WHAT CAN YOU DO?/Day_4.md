@@ -1,6 +1,4 @@
-# Week 10 — Day 4 (WHAT CAN YOU DO?)
-
-## God’s “Money-Back” Guarantee
+# Week 10 — Day 4 - God’s “Money-Back” Guarantee
 
 > *But the Scripture declares that the whole world is a prisoner of sin, so that what was promised, being given through faith in Jesus Christ, might be given to those who believe*  
 > — **Galatians 3:22**

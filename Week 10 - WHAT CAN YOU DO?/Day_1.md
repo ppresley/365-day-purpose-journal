@@ -1,6 +1,4 @@
-# Week 10 — Day 1 (WHAT CAN YOU DO?)
-
-## All Things Are Possible
+# Week 10 — Day 1 - All Things Are Possible
 
 > *For nothing is impossible with God*  
 > — **Luke 1:37**

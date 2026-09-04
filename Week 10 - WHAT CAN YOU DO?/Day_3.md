@@ -1,6 +1,4 @@
-# Week 10 — Day 3 (WHAT CAN YOU DO?)
-
-## The Demands of the Creator
+# Week 10 — Day 3 - The Demands of the Creator
 
 > *As you do not know the path of the wind, or how the body is formed in a mother’s womb, so you cannot understand the work of God, the Maker of all things*  
 > — **Ecclesiastes 11:5**

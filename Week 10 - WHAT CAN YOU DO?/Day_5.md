@@ -1,6 +1,4 @@
-# Week 10 — Day 5 (WHAT CAN YOU DO?)
-
-## You Can Do Everything God Asks
+# Week 10 — Day 5 - You Can Do Everything God Asks
 
 > *…and His incomparably great power for us who believe. That power is like the working of His mighty strength*  
 > — **Ephesians 1:19**

@@ -1,6 +1,4 @@
-# Week 10 — Day 2 (WHAT CAN YOU DO?)
-
-## You Can Do All Things
+# Week 10 — Day 2 - You Can Do All Things
 
 > *I can do everything through Him who gives me strength* 
 > — **Philippians 4:13**
