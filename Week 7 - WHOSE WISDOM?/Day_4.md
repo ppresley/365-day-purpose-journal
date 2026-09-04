@@ -1,6 +1,4 @@
-# Week 7 — Day 4 (WHOSE WISDOM?)
-
-## What Is Wisdom?
+# Week 7 — Day 4 - What Is Wisdom?
 
 > *Hear this, you foolish and senseless people, who have eyes but do not see, who have ears but do not hear*  
 > — **Jeremiah 5:21**

@@ -1,6 +1,4 @@
-# Week 7 — Day 2 (WHOSE WISDOM?)
-
-## Our Main Goal
+# Week 7 — Day 2 - Our Main Goal
 
 > *Who endowed the heart with wisdom or gave understanding to the mind?*  
 > — **Job 38:36**

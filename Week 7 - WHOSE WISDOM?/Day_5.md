@@ -1,6 +1,4 @@
-# Week 7 — Day 5 (WHOSE WISDOM?)
-
-## The World’s Wisdom Is Perverted
+# Week 7 — Day 5 - The World’s Wisdom Is Perverted
 
 > *For the wisdom of this world is foolishness in God’s sight. As it is written: “He catches the wise in their craftiness”*  
 > — **1 Corinthians 3:19**

@@ -1,6 +1,4 @@
-# Week 7 — Day 1 (WHOSE WISDOM?)
-
-## The Potential to Understand
+# Week 7 — Day 1 - The Potential to Understand
 
 > *Wisdom is supreme; therefore get wisdom…*  
 > — **Proverbs 4:7**

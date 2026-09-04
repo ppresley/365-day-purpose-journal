@@ -1,6 +1,4 @@
-# Week 7 — Day 6 (WHOSE WISDOM?)
-
-## Your Secret Wisdom
+# Week 7 — Day 6 - Your Secret Wisdom
 
 > *We do, however, speak a message of wisdom among the mature, but not the wisdom of this age or of the rulers of this age, who are coming to nothing. No, we speak of God’s secret wisdom, a wisdom that has been hidden and that God destined for our glory before time began*  
 > — **1 Corinthians 2:6-7**

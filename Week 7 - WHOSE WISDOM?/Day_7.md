@@ -1,6 +1,4 @@
-# Week 7 — Day 7 (WHOSE WISDOM?)
-
-## Born With Wisdom
+# Week 7 — Day 7 - Born With Wisdom
 
 > *“…No eye has seen, no ear has heard, no mind has conceived what God has prepared for those who love Him”—but God has revealed it to us by His Spirit*  
 > — **1 Corinthians 2:9-10a**

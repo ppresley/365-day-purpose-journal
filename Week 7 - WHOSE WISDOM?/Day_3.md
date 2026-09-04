@@ -1,6 +1,4 @@
-# Week 7 — Day 3 (WHOSE WISDOM?)
-
-## The Wisdom of the World
+# Week 7 — Day 3 - The Wisdom of the World
 
 > *Your heart became proud on account of your beauty, and you corrupted your wisdom because of your splendor. So I threw you to the earth; I made a spectacle of you before kings*  
 > — **Ezekiel 28:17**

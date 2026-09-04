@@ -1,6 +1,4 @@
-# Week 7 — Review (WHOSE WISDOM?)
-
-## REVIEW the principles from this week:
+# Week 7 — REVIEW the principles from this week:
 
 - The potential of everything is related to its purpose for being.
 - The wisdom of the world is a foolish, corrupt wisdom.
