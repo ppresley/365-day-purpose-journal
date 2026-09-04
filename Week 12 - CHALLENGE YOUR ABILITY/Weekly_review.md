@@ -1,6 +1,4 @@
-# Week 12 — Review (CHALLENGE YOUR ABILITY)
-
-## REVIEW the principles from this week
+# Week 12 — REVIEW the principles from this week
 
 - Believe there is potential in you to accomplish something worthwhile.
 - Unless you use your potential, you will never realize how much ability is inside you.

@@ -1,6 +1,4 @@
-# Week 12 — Day 7 (CHALLENGE YOUR ABILITY)
-
-## Demand Something of Your Potential
+# Week 12 — Day 7 - Demand Something of Your Potential
 
 > *If the Lord delights in a man’s way, He makes his steps firm; though he stumble, he will not fall, for the Lord upholds him with His hand*  
 > — **Psalms 37:23-24**

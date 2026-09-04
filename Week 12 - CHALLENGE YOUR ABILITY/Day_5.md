@@ -1,6 +1,4 @@
-# Week 12 — Day 5 (CHALLENGE YOUR ABILITY)
-
-## Shortcuts Don’t Work
+# Week 12 — Day 5 - Shortcuts Don’t Work
 
 > *…and observe what the Lord your God requires: Walk in His ways, and keep His decrees and commands, His laws and requirements, as written in the Law of Moses, so that you may prosper in all you do and wherever you go*  
 > — **1 Kings 2:3**

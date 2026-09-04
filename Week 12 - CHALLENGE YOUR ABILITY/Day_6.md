@@ -1,6 +1,4 @@
-# Week 12 — Day 6 (CHALLENGE YOUR ABILITY)
-
-## Demand Something of Your Potential
+# Week 12 — Day 6 - Demand Something of Your Potential
 
 > *With this in mind, we constantly pray for you, that our God may count you worthy of His calling, and that by His power He may fulfill every good purpose of yours and every act prompted by your faith*  
 > — **2 Thessalonians 1:11**

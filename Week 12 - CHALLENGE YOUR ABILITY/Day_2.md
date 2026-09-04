@@ -1,6 +1,4 @@
-# Week 12 — Day 2 (CHALLENGE YOUR ABILITY)
-
-## Tell Me To Come
+# Week 12 — Day 2 - Tell Me To Come
 
 > *…If anyone serves, he should do it with the strength God provides, so that in all things God may be praised through Jesus Christ. To Him be the glory and the power for ever and ever. Amen*  
 > — **1 Peter 4:11**

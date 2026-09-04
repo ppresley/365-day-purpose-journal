@@ -1,6 +1,4 @@
-# Week 12 — Day 4 (CHALLENGE YOUR ABILITY)
-
-## Beat the Odds
+# Week 12 — Day 4 - Beat the Odds
 
 > *I have told you these things, so that in Me you may have peace. In this world you will have trouble. But take heart! I have overcome the world*  
 > — **John 16:33**

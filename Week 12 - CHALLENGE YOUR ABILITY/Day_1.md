@@ -1,6 +1,4 @@
-# Week 12 — Day 1 (CHALLENGE YOUR ABILITY)
-
-## How High Can You Jump?
+# Week 12 — Day 1 - How High Can You Jump?
 
 > *Therefore I tell you, whatever you ask for in prayer, believe that you have received it, and it will be yours*  
 > — **Mark 11:24**
