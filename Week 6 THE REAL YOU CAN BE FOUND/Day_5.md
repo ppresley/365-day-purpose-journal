@@ -1,6 +1,4 @@
-# Week 6 — Day 5 (THE REAL YOU CAN BE FOUND)
-
-## All Clogged Up
+# Week 6 — Day 5 - All Clogged Up
 
 > *…made us alive with Christ even when we were dead in transgressions—it is by grace you have been saved*  
 > — **Ephesians 2:5**

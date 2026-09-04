@@ -1,6 +1,4 @@
-# Week 6 — Day 7 (THE REAL YOU CAN BE FOUND)
-
-## Get Out the Clog
+# Week 6 — Day 7 - Get Out the Clog
 
 > *His master replied, “Well done, good and faithful servant! You have been faithful with a few things; I will put you in charge of many things. Come and share your master’s happiness!”*  
 > — **Matthew 25:21**

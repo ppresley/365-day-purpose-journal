@@ -1,6 +1,4 @@
-# Week 6 — Day 6 (THE REAL YOU CAN BE FOUND)
-
-## The Clog In Our Potential
+# Week 6 — Day 6 - The Clog In Our Potential
 
 > *For You know the grace of our Lord Jesus Christ, that though He was rich, yet for your sakes He became poor, so that you through His poverty might become rich*  
 > — **2 Corinthians 8:9**

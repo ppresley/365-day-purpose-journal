@@ -1,6 +1,4 @@
-# Week 6 — Day 3 (THE REAL YOU CAN BE FOUND)
-
-## Destruction Destroyed
+# Week 6 — Day 3 - Destruction Destroyed
 
 > *[Christ] who gave himself for our sins to rescue us from the present evil age, according to the will of our God and Father*  
 > — **Galatians 1:4**

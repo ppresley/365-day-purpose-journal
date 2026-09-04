@@ -1,6 +1,4 @@
-# Week 6 — Day 1 (THE REAL YOU CAN BE FOUND)
-
-## Fountains of Life
+# Week 6 — Day 1 - Fountains of Life
 
 > *I am come that they might have life, and might have it abundantly*  
 > — **John 10:10 KJV**

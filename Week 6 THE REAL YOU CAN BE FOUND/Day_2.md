@@ -1,6 +1,4 @@
-# Week 6 — Day 2 (THE REAL YOU CAN BE FOUND)
-
-## Uncapping the Well
+# Week 6 — Day 2 - Uncapping the Well
 
 > *But when He, the Spirit of truth, comes, He will guide you into all truth. He will not speak on His own; He will speak only what He hears, and He will tell you what is yet to come*  
 > — **John 16:13**

@@ -1,6 +1,4 @@
-# Week 6 — Day 4 (THE REAL YOU CAN BE FOUND)
-
-## The Cap and the Crowbar
+# Week 6 — Day 4 - The Cap and the Crowbar
 
 > *Whoever believes in Me, as the Scripture has said, streams of living water will flow from within him*  
 > — **John 7:38**
