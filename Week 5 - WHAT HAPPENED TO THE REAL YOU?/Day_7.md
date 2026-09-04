@@ -1,6 +1,4 @@
-# Week 5 — Day 7 (WHAT HAPPENED TO THE REAL YOU?)
-
-## What You Have Isn’t Life
+# Week 5 — Day 7 - What You Have Isn’t Life
 
 > *...whoever drinks the water I give him will never thirst. Indeed, the water I give him will become in him a spring of water welling up to eternal life*  
 > — **John 4:14**

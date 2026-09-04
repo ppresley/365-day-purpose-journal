@@ -1,6 +1,4 @@
-# Week 5 — Day 2 (WHAT HAPPENED TO THE REAL YOU?)
-
-## Do You Want To Be Like God?
+# Week 5 — Day 2 - Do You Want To Be Like God?
 
 > *For God knows that when you eat of it your eyes will be opened, and you will be like God, knowing good and evil*  
 > — **Genesis 3:5**

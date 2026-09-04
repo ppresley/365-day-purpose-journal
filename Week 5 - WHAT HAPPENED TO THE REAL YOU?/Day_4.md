@@ -1,6 +1,4 @@
-# Week 5 — Day 4 (WHAT HAPPENED TO THE REAL YOU?)
-
-## Aren’t You Ugly!
+# Week 5 — Day 4 - Aren’t You Ugly!
 
 > *When he lies, he speaks his native language, for he is a liar and the father of lies*  
 > — **John 8:44b**

@@ -1,6 +1,4 @@
-# Week 5 — Day 3 (WHAT HAPPENED TO THE REAL YOU?)
-
-## God’s Holding Back On You
+# Week 5 — Day 3 - God’s Holding Back On You
 
 > *I know that everything God does will endure forever; nothing can be added to it and nothing taken from it. God does it so that men will revere Him*  
 > — **Ecclesiastes 3:14**

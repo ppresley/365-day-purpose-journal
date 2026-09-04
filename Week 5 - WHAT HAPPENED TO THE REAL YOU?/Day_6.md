@@ -1,6 +1,4 @@
-# Week 5 — Day 6 (WHAT HAPPENED TO THE REAL YOU?)
-
-## You’ll Never Be Anything
+# Week 5 — Day 6 - You’ll Never Be Anything
 
 > *Commit to the Lord whatever you do, and your plans will succeed*  
 > — **Proverbs 16:3**

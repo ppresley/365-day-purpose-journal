@@ -1,6 +1,4 @@
-# Week 5 — Day 5 (WHAT HAPPENED TO THE REAL YOU?)
-
-## Come On—Get Smart!
+# Week 5 — Day 5 - Come On—Get Smart!
 
 > *Let us discern for ourselves what is right; let us learn together what is good*  
 > — **Job 34:4**

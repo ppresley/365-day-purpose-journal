@@ -1,6 +1,4 @@
-# Week 5 — Day 1 (WHAT HAPPENED TO THE REAL YOU?)
-
-## No Limits
+# Week 5 — Day 1 - No Limits
 
 > *…The reason the Son of God appeared was to destroy the devil’s work*  
 > — **1 John 3:8**
