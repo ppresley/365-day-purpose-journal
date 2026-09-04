@@ -1,6 +1,4 @@
-# Week 8 — Review (CONNECTING WITH GOD’S WISDOM)
-
-## REVIEW the principles from this week:
+# Week 8 — REVIEW the principles from this week:
 
 - You are in God’s class.
 - You will never know who you are supposed to be until you accept Jesus as your Savior and

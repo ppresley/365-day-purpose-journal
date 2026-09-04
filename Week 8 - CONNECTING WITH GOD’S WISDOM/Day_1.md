@@ -1,6 +1,4 @@
-# Week 8 — Day 1 (CONNECTING WITH GOD’S WISDOM)
-
-## The Deep Things of God
+# Week 8 — Day 1 - The Deep Things of God
 
 > *…but God has revealed it to us by His Spirit. The Spirit searches all things, even the deep things of God*  
 > — **1 Corinthians 2:10**

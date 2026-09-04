@@ -1,6 +1,4 @@
-# Week 8 — Day 6 (CONNECTING WITH GOD’S WISDOM)
-
-## Look What You’ve Got!
+# Week 8 — Day 6 - Look What You’ve Got!
 
 > *We have not received the spirit of the world but the Spirit who is from God, that we may understand what God has freely given us*  
 > — **1 Corinthians 2:12**

@@ -1,6 +1,4 @@
-# Week 8 — Day 7 (CONNECTING WITH GOD’S WISDOM)
-
-## God’s Got It All
+# Week 8 — Day 7 - God’s Got It All
 
 > *Those who live according to the sinful nature have their minds set on what that nature desires; but those who live in accordance with the Spirit have their minds set on what the Spirit desires*  
 > — **Romans 8:5**

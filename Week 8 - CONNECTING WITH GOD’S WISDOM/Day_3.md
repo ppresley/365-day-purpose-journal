@@ -1,6 +1,4 @@
-# Week 8 — Day 3 (CONNECTING WITH GOD’S WISDOM)
-
-## The Holy Spirit Is the Key to Power
+# Week 8 — Day 3 - The Holy Spirit Is the Key to Power
 
 > *For who among men knows the thoughts of a man except the man’s spirit within him? In the same way no one knows the thoughts of God except the Spirit of God*  
 > — **1 Corinthians 2:11**

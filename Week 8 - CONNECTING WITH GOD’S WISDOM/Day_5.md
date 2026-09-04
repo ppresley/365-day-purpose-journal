@@ -1,6 +1,4 @@
-# Week 8 — Day 5 (CONNECTING WITH GOD’S WISDOM)
-
-## Receive the Revelation
+# Week 8 — Day 5 - Receive the Revelation
 
 > *The words of a man’s mouth are deep waters, but the fountain of wisdom is a bubbling brook*  
 > — **Proverbs 18:4**

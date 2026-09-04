@@ -1,6 +1,4 @@
-# Week 8 — Day 4 (CONNECTING WITH GOD’S WISDOM)
-
-## The Knowledge to Bring Change
+# Week 8 — Day 4 - The Knowledge to Bring Change
 
 > *Hear this, you foolish and senseless people, who have eyes but do not see, who have ears but do not hear*  
 > — **Jeremiah 5:21**

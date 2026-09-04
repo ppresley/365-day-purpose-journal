@@ -1,6 +1,4 @@
-# Week 8 — Day 2 (CONNECTING WITH GOD’S WISDOM)
-
-## The Holy Spirit Connection
+# Week 8 — Day 2 - The Holy Spirit Connection
 
 > *But you will receive power when the Holy Spirit comes on you; and you will be My witnesses in Jerusalem, and in all Judea and Samaria, and to the ends of the earth*  
 > — **Acts 1:8**
